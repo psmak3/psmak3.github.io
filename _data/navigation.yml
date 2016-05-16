@@ -1,0 +1,31 @@
+# Site navigation links
+
+- title: Global
+  url: /global/
+
+- title: National
+  url: /national/
+
+- title: Local
+  url: /local/
+
+- title: Personal
+  url: /personal/
+
+- title: Sports
+  url: /sports/
+
+- title: Pop Culture
+  url: /popculture/
+
+- title: Beer
+  url: /beer/
+
+- title: Top 10s
+  url: /top10s/
+  
+- title: About Me
+  url: /aboutme/
+  
+- title: About This Site
+  url: /aboutthissite/
