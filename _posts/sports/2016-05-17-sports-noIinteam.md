@@ -9,7 +9,6 @@ share: true
 
 ![](https://shotgunwildatheart.files.wordpress.com/2011/04/theres_i_in_team.jpg)
 
-Hello
 
 Don't you hate it when you play pick-up basketball with strangers? Other than the fact every dude thinks they are better at the game than they really are (I think this gene is located on the HLA-B allele strand of the male), you never get the ball. Sure, at the beginning of the game everything seems peaceful and cooperative: you get the ball, pass, try to set a screen, move without the ball, etc. But after that auspicious first possession, the players quickly morph into a bunch of Billy Zane's in the Titanic; every man for himself. You better get the rebound or else you will not even have a chance of touching the ball, much less shoot. When the other team scores, you have to run away or else you may have to inbounds the ball. It just becomes a game of garbage.
 
