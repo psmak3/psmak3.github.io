@@ -24,7 +24,7 @@ Yesterday, the super PAC 'Priorities USA', the huge money support for Hillary Cl
 
 Click here if you want to see round one:
 
-[msnbc](http://www.msnbc.com/rachel-maddow/watch/exclusive-sneak-peek-at-new-anti-trump-ads-686936643709)
+[For Anti-Trump Ad, click here!](http://www.msnbc.com/rachel-maddow/watch/exclusive-sneak-peek-at-new-anti-trump-ads-686936643709)
 
 
 So....were you persuaded?
