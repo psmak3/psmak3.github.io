@@ -7,7 +7,7 @@ comments: true
 share: true
 ---
 
-![](http://expressivevoicedynamics.com/wp-content/uploads/2015/03/panda-disappointment.jpg)
+![](https://cdn.meme.am/instances/500x/66216291.jpg)
 
 
 This is Seattle Beer Week!!! What does that exactly mean? I really don't know, I feel like it's beer week every week around here. 
