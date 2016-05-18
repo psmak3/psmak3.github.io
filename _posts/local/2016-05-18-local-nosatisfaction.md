@@ -33,7 +33,7 @@ Eh, so what. Welcome to Cap Hill; Hipsters Paradise. I can deal with that. But w
 
 Twelve samplers, all Randall style, but 7, count 'em, **7** beers were pale ales or pilsners. What the hell?!?!?! The most bland, generic style of beer you can find is represented by over half? BOOOOOO!!!! 
 
-I just don't get this idea that when it's spring or summer, dark beers are not on tap. Granted, the PNW loves their hops and their IPAs, but c'mon. There needs to be diversity. This lineup was as homogenious as the Republican National Convention. It's like all these hipster brewers did was peed in a vat, threw a few orange peels in there, and served it up to me. 
+I just don't get this idea that when it's spring or summer, dark beers are not on tap. Granted, the PNW loves their hops and their IPAs, but c'mon. There needs to be diversity. This lineup was as homogeneous as the Republican National Convention. It's like all these hipster brewers did was peed in a vat, threw a few orange peels in there, and served it up to me. 
 
 
 So disappointed. I felt it was 1997 all over again; all geeked up to see Phantom Menace only to have Jar Jar fart in my face while George Lucas stole my money. 

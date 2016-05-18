@@ -21,7 +21,7 @@ When I taught, the one thing kids had the strongest opinions on, the one topic t
 That was mid 2000's. Now I can't even name a current music act.
 
 
-Why does this happen? I mean I am not frozen in time when it comes to sports, movies, tv, etc. Why music? You know my iPod (yes, iPod) deos not have a single song post year 2000? I haven't updated the playlist in 10 years. 
+Why does this happen? I mean I am not frozen in time when it comes to sports, movies, tv, etc. Why music? You know my iPod (yes, iPod) does not have a single song post year 2000? I haven't updated the playlist in 10 years. 
 
 Now I can go backwards when it comes to music; Zeppelin is my all-time fav while anything from the 70's kicks ass. Even the glam era of the 80's has a soft place in my heart. But now, I have no clue what is considered 'good'. 
 
