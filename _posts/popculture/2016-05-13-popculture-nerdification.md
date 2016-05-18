@@ -25,4 +25,3 @@ But another reason is that it inspires some imagination and thought. These are g
 Also, it is an acceptance of a subculture that has been routinely mocked for decades in this country. Put the nerd in the locker, beat up the geeky computer nerd. Yes, those nerds now are rich and are somewhat deified, but that's not the real pith of this; the acceptance of different interests and social mannerisms is a bigger deal. More acceptance=better world.  
 
 So I say to all my nerd friends...Excelsior!!! And also can you not be so embarrassing in public? I mean some social norms should be adhered to. 
-
