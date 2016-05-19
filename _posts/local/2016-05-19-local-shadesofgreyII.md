@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "50 Shades of Shit"
+title: "50 Shades of Poo"
 excerpt: "Local"
 categories: local
 comments: true
