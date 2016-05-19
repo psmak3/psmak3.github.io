@@ -3,7 +3,7 @@ layout: post
 title: "Can't Get No Satisfaction"
 excerpt: "Local"
 categories: local
-comments: true
+comments: false
 share: true
 ---
 

@@ -3,7 +3,7 @@ layout: post
 title: "Why Do I Go to Extremes"
 excerpt: "Global"
 categories: global
-comments: true
+comments: false
 share: true
 ---
 

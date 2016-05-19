@@ -3,7 +3,7 @@ layout: post
 title: "Preaching to the Choir"
 excerpt: "National"
 categories: national
-comments: true
+comments: false
 share: true
 ---
 

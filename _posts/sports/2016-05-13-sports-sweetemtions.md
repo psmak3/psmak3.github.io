@@ -3,7 +3,7 @@ layout: post
 title: "Sweet Emotions"
 excerpt: "Sports"
 categories: sports
-comments: true
+comments: false
 share: true
 ---
 

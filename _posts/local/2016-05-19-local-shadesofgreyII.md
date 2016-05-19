@@ -3,7 +3,7 @@ layout: post
 title: "50 Shades of Poo"
 excerpt: "Local"
 categories: local
-comments: true
+comments: false
 share: true
 ---
 

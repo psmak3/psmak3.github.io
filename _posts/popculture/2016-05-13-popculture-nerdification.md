@@ -3,7 +3,7 @@ layout: post
 title: "The Nerdification of America"
 excerpt: "Pop Culture"
 categories: popculture
-comments: true
+comments: false
 share: true
 ---
 

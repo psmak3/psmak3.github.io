@@ -3,7 +3,7 @@ layout: post
 title: "Who the Hell Do You Think You Are?"
 excerpt: "Personal"
 categories: personal
-comments: true
+comments: false
 share: true
 ---
 

@@ -3,7 +3,7 @@ layout: post
 title: "Have Gun, Will Travel"
 excerpt: "National"
 categories: national
-comments: true
+comments: false
 share: true
 ---
 

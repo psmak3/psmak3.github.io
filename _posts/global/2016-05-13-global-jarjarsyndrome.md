@@ -3,7 +3,7 @@ layout: post
 title: "The 'Jar Jar' Syndrome"
 excerpt: "Global"
 categories: global
-comments: true
+comments: false
 share: true
 ---
 

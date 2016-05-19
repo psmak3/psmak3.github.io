@@ -3,7 +3,7 @@ layout: post
 title: "Plane Trigonometry"
 excerpt: "Global"
 categories: global
-comments: true
+comments: false
 share: true
 ---
 

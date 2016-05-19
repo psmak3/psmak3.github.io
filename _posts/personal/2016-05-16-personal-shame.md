@@ -3,7 +3,7 @@ layout: post
 title: "Shame!!"
 excerpt: "Personal"
 categories: personal
-comments: true
+comments: false
 share: true
 ---
 

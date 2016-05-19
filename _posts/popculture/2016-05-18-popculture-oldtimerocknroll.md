@@ -3,7 +3,7 @@ layout: post
 title: "Old-Time Rock N' Roll"
 excerpt: "Pop Culture"
 categories: popculture
-comments: true
+comments: false
 share: true
 ---
 

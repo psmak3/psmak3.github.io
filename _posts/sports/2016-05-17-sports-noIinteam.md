@@ -3,7 +3,7 @@ layout: post
 title: "There is No 'I' in 'Team'"
 excerpt: "Sports"
 categories: sports
-comments: true
+comments: false
 share: true
 ---
 

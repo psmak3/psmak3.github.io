@@ -3,7 +3,7 @@ layout: post
 title: "First Impressions"
 excerpt: "Local"
 categories: local
-comments: true
+comments: false
 share: true
 ---
 
