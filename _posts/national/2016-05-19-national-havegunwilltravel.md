@@ -34,7 +34,7 @@ An apology the Martin family never got.
 Now, I don't care what side you are on about this: right to defend vs right to live without creepers following you around, but we all can and should agree selling said weapon via auction is not so good.
 
 
-Yes, George Zimmerman, man with a rap sheet longer than the child shot [got check it out](http://fusion.net/story/37700/george-zimmerman-arrested-domestic-violence-florida-january-2015/), sold his gun on-line for $120,000.
+Yes, George Zimmerman, man with a rap sheet longer than the child shot: [gotta check this out](http://fusion.net/story/37700/george-zimmerman-arrested-domestic-violence-florida-january-2015/), sold his gun on-line for $120,000.
 
 I mean....really? Where is the [shame](http://seattlespew.com/personal/personal-shame/)? I know if I shot someone, I would not wear that fact around like a badge of honor and profit off of it. I would like to think myself, and other humans, would feel remorse about something like that, regardless of who had 'it coming to them'. I mean even Han Solo felt worse after **shooting first** and killing Greedo.
 
