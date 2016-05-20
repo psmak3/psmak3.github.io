@@ -30,7 +30,7 @@ It's funny, it seems like a generational thing. The older the man, the more care
 Conversely, the younger set, who I see as far more liberally with their sexual opinions and fashion, wear a towel to and from the shower, cowering in front of all on-lookers. You would think they would be proud and jaunty about their body. Au contraire.
 
 
-I really don't get either generation, and honestly I don't care to. I just people to put some pants on.
+I really don't get either generation, and honestly I don't care to. I just want people to put some pants on.
 
 
 
