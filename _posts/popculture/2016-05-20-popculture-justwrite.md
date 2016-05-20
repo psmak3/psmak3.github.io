@@ -7,7 +7,7 @@ comments: false
 share: true
 ---
 
-![](http://www.toughchurchplanting.com/wp-content/uploads/2014/02/finish.jpg)
+![](http://i0.wp.com/nerdbastards.com/wp-content/uploads/2014/06/george-rr-martin.jpg?w=600)
 
 
 Just finish it George RR Martin, just finish it already!!!
