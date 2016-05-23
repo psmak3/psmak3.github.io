@@ -10,6 +10,7 @@ share: true
 ![](http://vignette2.wikia.nocookie.net/all-the-stuff2/images/8/83/345148.jpg/revision/latest?cb=20130418014234))
 
 
+
 I always hated it as a kid when a grown-up (be it family friend or relative) would see me and say such things as 'wow, you have grown' or 'I remember when you were only this tall'. What the hell do you think would happen in that year span? Of course I have grown, you idiot! If that even worth commenting on? Now if I shrunk, that would be something. If you said something about that, well I would understand. I mean 'holy shit' if I shrunk, right? But growing? Just shut up you ass!
 
 Well, coming soon I will become that ass. I am returning back to Tucson this week and will effectively treat Tucson like that little kid you haven't seen in years (although visited less than 6 months ago).
