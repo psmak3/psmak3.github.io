@@ -15,23 +15,23 @@ Albert Fish was an american serial killer in the early 1900's. He was a child ra
 
 Oddly enough he was married twice (well, one was arranged and the other lasted a week). So sorry ladies of the 1920's, this guy's taken. 
 
+
+
 ![](https://upload.wikimedia.org/wikipedia/commons/8/81/Albert_Fish_1903.JPG)
 
 
 
 
-[If you want to read more about him, click here:](https://en.wikipedia.org/wiki/Albert_Fish)
-
 Now I have never met this guy, so I don't want to be too hasty to judge, but he is sort of an ass. *
 
 
-
+So why even bring up this monster? Well.....
 
 
 If corporations were people, I think Exxon would be the modern day Albert Fish.
 
 
-The Guardian came out with a great article a few days ago. [Please clicke here to check this out:](https://www.theguardian.com/business/2016/may/20/oil-company-records-exxon-co2-emission-reduction-patents) In sum, it basically says Exxon has patents dating back to the 60's that would lower emissions in cars and have technologies that have since been discovered by Tesla for their first electric car batteries.
+The Guardian came out with a great article a few days ago. [Please click here and check this out:](https://www.theguardian.com/business/2016/may/20/oil-company-records-exxon-co2-emission-reduction-patents) In sum, it basically says Exxon has patents dating back to the 60's that would lower emissions in cars and have technologies that have since been discovered by Tesla for their first electric car batteries.
 
 
 This is not only proof that Exxon deliberately delayed advancement in this field, this is not only proof that Exxon knew about the harms of C02 emissions, this is proof they are assholes.
