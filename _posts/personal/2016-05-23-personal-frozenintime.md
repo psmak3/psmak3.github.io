@@ -56,6 +56,7 @@ And you what? You are going to hear it, hate it, and endure it. You know why? Be
 - There's another Panda Express? I love that place! Did I mention that.
 
 
+
 Yes folks. I will be treating Tucson like a growing kid, mussing up it's figurative hair, and act like I am frozen in time. Because all cities grow, and I am an ass.
 
 

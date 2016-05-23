@@ -25,6 +25,8 @@ Now I have never met this guy, so I don't want to be too hasty to judge, but he 
 
 
 
+
+
 If corporations were people, I think Exxon would be the modern day Albert Fish.
 
 
