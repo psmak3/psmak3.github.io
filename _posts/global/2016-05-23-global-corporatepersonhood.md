@@ -13,7 +13,7 @@ share: true
 Albert Fish was an american serial killer in the early 1900's. He was a child rapist and cannibal, a rare combo to find in that time period. He said he killed up to 100 people, but I am not sure I believe him. He said he chose mentally handicapped or African-Americans as victims because he assumed these people would not be missed when killed. He was also into self-mutilation. 
 
 
-Oddly enough he was married twice (well, one was arranged and the other lasted a week). So sorry ladies of the 1920's, this guy's taken.
+Oddly enough he was married twice (well, one was arranged and the other lasted a week). So sorry ladies of the 1920's, this guy's taken. 
 
 ![](https://upload.wikimedia.org/wikipedia/commons/8/81/Albert_Fish_1903.JPG)
 

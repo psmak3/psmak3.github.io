@@ -38,7 +38,6 @@ No. No it isn't. None of that is interesting. It is all stupid and no one gives 
 - I remember when the Tanque Verde Swap Meet was actually on Tanque Verde. Cool, huh?
 
 
-
 But wait...there's more:
 
 - They did a nice job with the downtown. I remember when it was not as good as it is currently.
