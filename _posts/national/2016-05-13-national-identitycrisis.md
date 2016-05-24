@@ -45,7 +45,7 @@ So what do each one of these guys have in common? They all support Donald Trump 
 
 Granted, all of these guys were running against him in the primaries at one time, but those statements are deep and highly abrasive. 
 
-My ultimate question is this: ** what are you first, a Republican or an American? **
+My ultimate question is this: **what are you first, a Republican or an American?**
 
 
 Even if you like Donald Trump, you like the bravado and think America needs a change of leadership, there is no question he is unqualified for the job. He doesn't know policy, how the government works, and the true responsibilities of the president. Even more importantly, he doesn't care to know. How do I know this? He has never held office in his life!! There is no possible way he knows any of this stuff. 
