@@ -1,7 +1,7 @@
 ---
 layout: page
 title: About Me
-excerpt: "Instructions on how to install and customize the Jekyll theme So Simple."
+excerpt: "The semi-mindful spewings of some single, middle-aged white guy living in downtown Seattle."
 modified: 2016-01-19
 image:
   feature: aboutme.jpg
