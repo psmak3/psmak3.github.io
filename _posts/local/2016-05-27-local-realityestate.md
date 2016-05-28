@@ -25,9 +25,9 @@ You know that prized real esate on the coast? It's pretty much gone. You know th
 
 The results from my simulations indicate that there is a 95% chance that a earthquake/tsunami/volcano explosion will happen within the next week to 10,000 years. Yes fellow Seattleites, the end is nigh.
 
-But take solace in the fact that no matter how much you need to spend to live in our beautiful city, it will be gone soon enough. So does any of this matter? Eh, not really. Phew!
+But take solace in the fact that no matter how much you need to spend to live in our beautiful city, it will be gone soon enough. So breathe that sigh of relief.
 
-So it really doesn't matter 
+
 
 
 
