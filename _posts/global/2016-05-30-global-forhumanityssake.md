@@ -7,7 +7,7 @@ comments: false
 share: true
 ---
 
-![](http://3.bp.blogspot.com/-PsYYKbgZjNQ/UC58xO46TPI/AAAAAAAAA8c/-JUQHRt3-0A/s1600/man%20vs%20animal.jpg)
+![](https://s-media-cache-ak0.pinimg.com/236x/f7/18/dc/f718dc5567773573d3440d2e65bfd532.jpg)
 
 Nature shows are excellent. Have you ever seen Planet Earth? If not, stop reading this and watch it now, because it is way better than this post. I'll wait......
 
