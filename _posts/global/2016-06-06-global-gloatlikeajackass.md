@@ -57,7 +57,7 @@ So is he a bad guy? Of course not. Is he a racist? Ehh, not so sure of that eith
 
 
 
-He can be a hero to you and that is fine. He is just not a hero to me. To me, he is a man who did some great and inspiring things, but also a man who was void of humility, berated and hurt others to promote himself, and expressed some views that I would at best call questionable. His charisma made many people forgive and overlook some of the things he has said and done over the years (I mean the US Olympics Board gave him another medal, let him light the torch at the 1996 games, and we all just ate it up like regurgitated pap without question). He was no sinner, but no saint either. 
+He can be a hero to you and that is fine. He is just not a hero to me. To me, he is a man who did some great and inspiring things, but also a man who was void of humility, berated and hurt others to promote himself, and expressed some views that I would at best call questionable. His charisma made many people forgive and overlook some of the things he has said and done over the years (I mean the US Olympics Board gave him another medal, let him light the torch at the 1996 games, and we all just ate it up like regurgitated pap without question). I am not sure if he was a sinner or a saint. Maybe both. Maybe neither. But he is flawed, just like every one of us.
 
 
 Finally, 'Greatest Ever'? Ehhhhhh, 56-5 is not the greatest ever. Just watch the Larry Holmes fight if you disagree. Yeah, he had early Parkinson's, but you can't be that bad at 38 and be called the 'Greatest'. Just because you call yourself the greatest doesn't mean you are. Remember, unquestioned perception leads to reality: I'll take Joe Louis over Ali.
