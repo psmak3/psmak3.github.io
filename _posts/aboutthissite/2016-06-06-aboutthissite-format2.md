@@ -1,12 +1,10 @@
 ---
 layout: post
-title: New Format Info
-modified:
-categories:
-excerpt: 
-tags: []
-image:
-  feature:
+title: "Format 2"
+excerpt: "About This Site"
+categories: aboutthissite
+comments: false
+share: true
 ---
 
 In response to the grief that has been given to me about the neglect of the 'Beer' category (and rightfully so) as well as the sparce entries of the 'Top 10', here is the new formatting information for all my readers:
