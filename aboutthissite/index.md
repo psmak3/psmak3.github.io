@@ -2,10 +2,10 @@
 layout: page
 title: About This Site
 excerpt: "Poo"
+search_omit: true
 image:
   feature: aboutthissite.jpg
 ---
-
 
 
 
