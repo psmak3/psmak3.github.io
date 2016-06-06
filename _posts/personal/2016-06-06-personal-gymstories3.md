@@ -29,10 +29,10 @@ So I was musing that this is a simple case of personal vs social rights. I mean 
 I seriously hate this man. He haunts me every day. I try to time gym visits to avoid him, but he pops in so randomly, who knows what's going on? I try to work in areas he does not frequent, but all of the sudden there he is, jumping on a bouncy ball or swinging around a 40 lb weight like a damn fool. 
 
 
-We have to do something about this guy. To quote Spock: 'the needs of the many outweigh the needs of the few or the one'. I think it is time for the good people at 24 Hr to meet, unite, and fight the good fight. 
+We have to do something about this guy. To quote Spock: 'the needs of the many outweigh the needs of the few or the one'. I think it is time for the good people at 24 HR to meet, unite, and fight the good fight. 
 
 
-I just hope your gym doesn't sing him up as a member. But better you than me.......
+I just hope your gym doesn't sign him up as a member. But better you than me.......
 
 
 
