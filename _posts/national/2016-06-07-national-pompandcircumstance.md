@@ -29,7 +29,7 @@ Here are a list of your professors:
 
 # Professor Frink
 
-![](https://en.wikipedia.org/wiki/Professor_Frink#/media/File:Frink.png)
+![](https://pbs.twimg.com/profile_images/448714507/Frink_400x400.png)
 
 
 - Head of the Mathematics Department
@@ -40,7 +40,7 @@ Here are a list of your professors:
 # Professor Vivian Banks
 
 
-![](https://en.wikipedia.org/wiki/Professor_Frink#/media/File:Frink.png)
+![](https://img.buzzfeed.com/buzzfeed-static/static/2014-10/20/12/enhanced/webdr05/grid-cell-5563-1413823604-12.jpg)
 
 
 - Head of the African American Studies
