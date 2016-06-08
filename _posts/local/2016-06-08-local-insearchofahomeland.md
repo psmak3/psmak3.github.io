@@ -30,7 +30,7 @@ From an article on [538.com](http://fivethirtyeight.com/features/the-rent-is-les
 
 Here is the table:
 
-![](C:\Users\pstevens\Desktop\SeattleSpew\images\rent.PNG)
+![](C:\Users\pstevens\Desktop\SeattleSpew\images\rent2.JPG)
 
 
 As you can see, Seattle is fuckin expensive. But it is only 5th. So not the worst.
