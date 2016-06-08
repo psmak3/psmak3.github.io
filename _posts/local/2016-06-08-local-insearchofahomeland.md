@@ -35,6 +35,7 @@ Here is the table:
 
 As you can see, Seattle is fuckin expensive. But it is only 5th. So not the worst.
 
+
 But look a little closer........
 
 It is the ONLY city than has an increased rent hike from 14-15 to 15-16. And it is the only rent hike in double digits. What the poo is that?
