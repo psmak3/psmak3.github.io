@@ -31,7 +31,7 @@ I really don't think I would handle the entire 'you may be terminal' thing very 
 - When you are a door, you know that awkward distance where you don't know if you should hold it for the next guy or just go it? Well I get pissed at that guy who forces me in that precarious situation. Why don't you just time your walk differently? 
 
 
-- I become irate with my phone when it takes an extra few moments for Google Maps to load up. 
+- I still don't know how to sort out my trash into recycle or compost, so I just throw it all in the recycle bin.
 
 
 

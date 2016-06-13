@@ -21,7 +21,7 @@ For example:
 
 # WWF logo
 
-[](http://www.logodesignlove.com/images/classic/wwf-panda-logo.jpg)
+![](http://www.logodesignlove.com/images/classic/wwf-panda-logo.jpg)
 
 
 How can pro wrestling live with itself knowing this fluffy fat panda is now the symbol of their organization. I'm sure Vince McMahon is rolling in his grave.
@@ -29,20 +29,20 @@ How can pro wrestling live with itself knowing this fluffy fat panda is now the 
 
 # Panda Express
 
-[](http://turningpointcares.net/wp-content/uploads/2015/10/Panda-Express.jpg)
+![](http://turningpointcares.net/wp-content/uploads/2015/10/Panda-Express.jpg)
 
 Look how smug that damn panda looks...eating my chow mein. Lucky for you my anger can't be too deep, your food is delicious.
 
 
 # Sexual Harassment Panda
 
-[](https://i.ytimg.com/vi/OQnNH7I07RY/hqdefault.jpg)
+![](https://i.ytimg.com/vi/OQnNH7I07RY/hqdefault.jpg)
 
 It was such a lame representation of an issue I hold dear, it was exiled to the Island of Misfit Mascots.
 
 # Purple Panda
 
-[](http://media.tumblr.com/tumblr_m3l7chOGGk1qdegul.jpg)
+![](http://media.tumblr.com/tumblr_m3l7chOGGk1qdegul.jpg)
 
 I love Mr. Rogers, but this was just weird. An alien panda fro the planet Purple? C'mon Fred, even as a 4 year old I knew that was not a reasonable character in the Neighbor of Make-Believe. And you had an orphan tiger living in a clock that I was willing to accept!
 
