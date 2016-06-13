@@ -7,11 +7,13 @@ comments: false
 share: true
 ---
 
-![](http://www.kiwipainting.co.nz/uploads/product/PANDAMONIUM.jpg)
+![](http://kids.nationalgeographic.com/content/dam/kids/photos/animals/Mammals/A-G/giant-panda-eating.jpg.adapt.945.1.jpg)
 
 
 
 I'm going to come out and say it; I am so tired of the panda's act. 
+
+Just look at the picture, he is laughing at us.
 
 
 They get so much attention from us humans it is ridiculous. From being put on logos, to creating cartoons where they know kung fu, to the infamous 'panda-cam', pandas are all littered across our pop culture.
