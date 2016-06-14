@@ -77,7 +77,7 @@ OK, so there are some high picks there. But still there's more....
 
 So why is this the case? Why is it much harder to predict success for a baseball player than a football or basketball player? Well if I ever figure it out, I'll make sure never to tell you so I can make million's off the solution. But I have a theory.
 
-The other sports rely on physical assets (eg:height, weight, speed, etc) more than baseball, and physical assets are easier to measure. Baseball relies on hand-eye coordination and the fine-tuning a very particular coordiated skill that is very hard to test and measure. Sure, you can see if Johnny Hitter can make contact against AAU competition, but how that skill will be honed over time and how his motor skills can handle more advanced training is harder to predict. 
+The other sports rely on physical assets (eg:height, weight, speed, etc) more than baseball, and physical assets are easier to measure. Baseball relies on hand-eye coordination and the fine-tuning a very particular coordinated skill that is very hard to test and measure. Sure, you can see if Johnny Hitter can make contact against AAU competition, but how that skill will be honed over time and how his motor skills can handle more advanced training is harder to predict. 
 
 Therefore, the end result is a draft that is boring, worthless, and not worth covering.
 
