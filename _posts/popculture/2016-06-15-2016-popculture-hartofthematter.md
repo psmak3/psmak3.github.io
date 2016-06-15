@@ -24,13 +24,13 @@ In the last 3 years, Kevin Hart has been in 10 feature films (most opening in Fe
 
 I don't hate the guy. I mean he not offensive, seems friendly, and he is tiny enough to stick in your pocket. But the simple fact is he does not make me laugh. At all. He just comes off as needy and attention-deprived to me. He is sort of like a modern-day Jerry Lewis; always has to be the center of attention. Maybe when America finally experiences Kevin Hart fatigue, he will have a second home in France.
 
-Anyway, there are three guarentees in life:
+Anyway, there are three guarantees in life:
 
 - Death
 
 - Taxes
 
-- I will never see The Wedding Ringer
+- I will never see Central Intelligence
 
 
 
