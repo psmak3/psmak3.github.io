@@ -32,6 +32,7 @@ So here is my plea to the aliens; please don't make me work in the salt mines.
 I'm sure the aliens came here for our awesome natural resources, and if there is anything science fiction has taught me, it is these two things: 
 
 1) aliens like salt
+
 2) working in a salt mine (or any mine for that matter) is not pleasant
 
 
