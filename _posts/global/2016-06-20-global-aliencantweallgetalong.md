@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Cant' We All Just Get Along?"
+title: "Alien Week: Cant' We All Just Get Along?"
 excerpt: "Global"
 categories: global
 comments: false
@@ -30,4 +30,3 @@ Yes, we would finally unite as one.....wait for the aliens to sleep.....and kill
 
 
 
-s
