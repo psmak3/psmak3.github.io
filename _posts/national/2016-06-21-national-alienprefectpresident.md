@@ -71,7 +71,7 @@ Due to the sad fact that this will not be asked on any show outside of Ancient A
 
 ## Pros
 
-- Her hawkish ways may result in a pre-emtive strike against the aliens before they even know it
+- Her hawkish ways may result in a preemptive strike against the aliens before they even know it
 
 - Her anti-firearm legislation would prevent the aliens the use of their laser guns in a ground attack
 
