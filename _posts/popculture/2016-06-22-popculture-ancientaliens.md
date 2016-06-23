@@ -10,6 +10,8 @@ share: true
 ![](http://www.ancient-code.com/wp-content/uploads/2015/10/ALIEN-BUILDERS-SUPERVISING-EGYPTIAN-GIZA-PYRAMID-CONSTRUCTION.jpg)
 
 
+*Hello and welcome to Alien Week at the Spew! In order to honor the opening of Independence Day 2, possibly the silliest, stupidest, guiltiest pleasure franchise in movie history, The Spew will have a week long dedication to all things alien.*
+
 One of my favorite shows is Ancient Aliens; a hodgepodge of bizarre and random 'logical' spins on human history that try to shoehorn the idea that aliens have not only visited Earth, but interacted and aided mankind in some of their greatest achievements. Yes, it is absolute pap and I should be ashamed that I watch it, yet here I am writing about it, so go figure......
 
 
