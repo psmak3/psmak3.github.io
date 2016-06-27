@@ -23,7 +23,7 @@ So is this a good thing or bad thing? Again, very hard to tell. Both sides have 
 
 
 
-In other words, no one here in the states really can gauge what the true impact of all of this is. But there are two things that cued me in to what side I should take in this:
+In other words, no one here in the states really can gauge what the true impact of all of this is. But there are two things that clued me in to what side I should take in this:
 
 1. The people who voted to leave were mainly people over the age of 65 and people without college educations
 
