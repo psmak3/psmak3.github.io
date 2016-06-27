@@ -23,7 +23,7 @@ However please give me some leash on this, because I had one of those no good ve
 
 This was the day I was supposed to pull out some money from my stocks to pay for the down payment of my new place. But.....the Dow dropped 600 points in one day. Now how did this happen you may ask? Because of those damn fools in Jolly Ole England screwing around with their EU vote. What are the chances on the very day I need to pull my funds, that happened? I guess empirically speaking, a 100% chance. 
 
-Later that day I caught word that I was to receive an upgrade on my iPhone 4s. Yeah yeah, I know I am out of it when it comes to phones, but nevertheless I was excited to finally join the 4G world. But.....apparently phone companies have a very liberal use of the term 'upgrade'. I thought I was going to get a new phone for free (as it said on their website). However that is not the case. In order for me to acheive this free phone, I have to 'upgrade' my plan for 24 months, which would cost more than the phone during that time. The other option was to keep my plan as is and pay $17 extra a month for the phone (which after the 24 months would come to the same price of the phone). In other words, the 'upgrade' they advertised to me over the phone was to lease a new phone. You have to be kidding me? A lease? All of this telecom stuff is a complete scam and I am sure they are in cahoots with the phone manufacturers. I guess they need you to keep 'buying' (or leasing...so fuckin' stupid....leasing a damn phone) their new stuff or else they may lose a few dollars from their projected earnings for that quarter. I know I sound naive about this and know you younger folks are used to this process, but this is complete rip off and a huge misuse of the word 'upgrade'.
+Later that day I caught word that I was to receive an upgrade on my iPhone 4s. Yeah yeah, I know I am out of it when it comes to phones, but nevertheless I was excited to finally join the 4G world. But.....apparently phone companies have a very liberal use of the term 'upgrade'. I thought I was going to get a new phone for free (as it said on their website). However that is not the case. In order for me to achieve this free phone, I have to 'upgrade' my plan for 24 months, which would cost more than the phone during that time. The other option was to keep my plan as is and pay $17 extra a month for the phone (which after the 24 months would come to the same price of the phone). In other words, the 'upgrade' they advertised to me over the phone was to lease a new phone. You have to be kidding me? A lease? All of this telecom stuff is a complete scam and I am sure they are in cahoots with the phone manufacturers. I guess they need you to keep 'buying' (or leasing...so fuckin' stupid....leasing a damn phone) their new stuff or else they may lose a few dollars from their projected earnings for that quarter. I know I sound naive about this and know you younger folks are used to this process, but this is complete rip off and a huge misuse of the word 'upgrade'.
 
 So I had some beer to relax me that night.......
 
@@ -54,9 +54,9 @@ The sun was right on me for the 3rd inning on. And no one could pitch, which mea
 So that means today at work instead of walking into work being wanted by all the women and envied by all the men with my awesome new Game of Thrones shirt, I look like a shaggy mess circus freak with no haircut and lobster-like arms. At least the shirt is still cool. 
 
 
-<p>
+<br>
 
-<p>
+<br>
 
 So there you have it; my terrible, horrible, no good, very bad weekend. I hope you enjoyed reading about it, because I had no fun living it. At least Game of Thrones was awesome on last night.
 
