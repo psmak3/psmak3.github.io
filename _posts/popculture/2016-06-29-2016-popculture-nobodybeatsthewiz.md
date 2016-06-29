@@ -110,7 +110,7 @@ Wow, what a question huh? I have bounced this poser off of people for years and 
 ![](http://blogs.nd.edu/oblation/files/2013/03/gandalflaugh.jpg)
 
 
-The Spew officially endorses Gandalf the White in this epic battle. The main issue I had with Yoda is that the Force is not as powerful of magic in Star Wars as the magic in Middle Earth and the Harry Potter world. Yes, Yoda can lift and throw heavy things, but he harness Force powers that are meant to attack. I issue I had with Dumbledore is that he never killed anyone, he just seemed to throw spells around to no avail. Dumbledore also was ultra-passive in his plan to topple Voldemort; he let himself die. Die? What kind of plan is that; your most powerful player in the game offs himself? 
+The Spew officially endorses Gandalf the White in this epic battle. The main issue I had with Yoda is that the Force is not as powerful of magic in Star Wars as the magic in Middle Earth and the Harry Potter world. Yes, Yoda can lift and throw heavy things, but he doesn't harness Force powers that are meant to attack. I issue I had with Dumbledore is that he never killed anyone, he just seemed to throw spells around to no avail. Dumbledore also was ultra-passive in his plan to topple Voldemort; he let himself die. Die? What kind of plan is that; your most powerful player in the game offs himself? 
 
 Gandalf has a strong track record of kills, has the best win over a foe in the Balrog, has a diverse way of attacking using both sword and staff, and the fact he is basically a god puts him over the top in this melee. Yes he couldn't overpower the Witch-King, but all of these guys have stubbed their toe against an enemy at one time. 
 

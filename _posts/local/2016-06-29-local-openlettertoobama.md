@@ -15,9 +15,7 @@ Dear President Obama,
 
 <br>
 
-<br>
 
-<br>
 
   Please stop coming to Seattle. Every time you come here we have to shut down pretty much the entire city to accommodate you.
   
@@ -42,6 +40,10 @@ I know all of these precautionary measures are so people won't murder you. But h
 
 
 I know the Emerald City is an awesome place to be and you will come back soon enough to hound Bill for even more dough. But next time, please leave your posse behind. I'll even buy you a drink. Deal?
+
+
+
+- The Spew
 
 
 
