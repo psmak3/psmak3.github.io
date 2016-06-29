@@ -114,7 +114,7 @@ The Spew officially endorses Gandalf the White in this epic battle. The main iss
 
 Gandalf has a strong track record of kills, has the best win over a foe in the Balrog, has a diverse way of attacking using both sword and staff, and the fact he is basically a god puts him over the top in this melee. Yes he couldn't overpower the Witch-King, but all of these guys have stubbed their toe against an enemy at one time. 
 
-Gandalf is truly the OW (Original Wizard) and the inspiration for genesis of these other two characters. How can you not endorse Gandalf?
+Gandalf is truly the OW (Original Wizard) and the inspiration for the creation of these other two characters. How can you not endorse Gandalf?
 
 
 
