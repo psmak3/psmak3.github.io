@@ -10,9 +10,9 @@ share: true
 ![](http://www.indiewire.com/wp-content/uploads/2014/03/gullivers-travels-680.jpg)
 
 
-*It's 'America Week' at the Spew! To celebrate the birth of our country, this week is dedicated to what I like to call 'The Greatest Country in the World! Or at least in the top 25 percentile...'
+*It's 'America Week' at the Spew! To celebrate the birth of our country, this week is dedicated to what I like to call 'The Greatest Country in the World! Or at least in the top 25 percentile...'*
 
-For those who say this dedication is a week late, I say 'I didn't know there was a time limit for loving my country, dammit!!' So shut up and read on......*
+*For those who say this dedication is a week late, I say 'I didn't know there was a time limit for loving my country, dammit!!' So shut up and read on......*
 
 
 I like to think of myself as worldly. I mean I have eaten at such international places like Panda Express, Yokohama Rice Bowl, and Del Taco (which translates to 'of the taco'), I have seen many movies where the hero travels to different parts of the world, and I used to own a globe.

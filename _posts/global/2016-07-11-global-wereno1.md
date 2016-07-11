@@ -11,9 +11,9 @@ share: true
 
 
 
-*It's 'America Week' at the Spew! To celebrate the birth of our country, this week is dedicated to what I like to call 'The Greatest Country in the World! Or at least top 5 percentile...'
+*It's 'America Week' at the Spew! To celebrate the birth of our country, this week is dedicated to what I like to call 'The Greatest Country in the World! Or at least top 5 percentile...'*
 
-For those who say this dedication is a week late, I say 'I didn't know there was a time limit for loving my country, dammit!!' So shut up and read on......*
+*For those who say this dedication is a week late, I say 'I didn't know there was a time limit for loving my country, dammit!!' So shut up and read on......*
 
 
 I love America. I also think it is safe to say everyone in the world loves America as well. 
@@ -35,7 +35,9 @@ Obviously US News and World Report (like anyone actually reads this rag) has a h
 
 America is like the cool guy at school; everyone is envious of him yet all want to be him. Yes, we flash our letterman's jacket around campus, we act like we own the world, and that can ruffle feathers. 
 
-But we sort of do own the world. I don't see Canada doing much about ISIS. Where is the UK when it comes to providing relief funds for countries hit with natural disasters? And Germany, well, those guys don't even play football. And yes, I mean the proper football; the one where you tackle people and really doesn't involve the 'foot' beyond running.
+But we sort of do own the world. I don't see Canada doing much about ISIS. Where is the UK when it comes to providing relief funds for countries hit with natural disasters? And Germany, explain David Hasselhoff. Just try to explain that to me. 
+
+Yeah, that's what I thought.
 
 
 So to you US News and World Report, I say **FIE!** Your ranking system is weak, unscientific, and downright wrong. Until you publish the US as #1, the Spew will never officially regard you as a credible media outlet. 
