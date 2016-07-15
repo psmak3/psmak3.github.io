@@ -91,7 +91,7 @@ Like FDR, there are tons of things to be said about this guy, much of which Dani
 # 1. George Washington
 
 
-![](http://cdn.history.com/sites/2/2013/11/George_Washington-AB.jpeg))
+![](http://cdn.history.com/sites/2/2013/11/George_Washington-AB.jpeg)
 
 
 
