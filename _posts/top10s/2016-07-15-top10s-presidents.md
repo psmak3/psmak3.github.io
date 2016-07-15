@@ -11,14 +11,14 @@ share: true
 
 # 10. James Buchanan
 
-![](https://upload.wikimedia.org/wikipedia/commons/9/98/JamesBuchanan_crop.jpg)
+![](http://img.timeinc.net/time/photoessays/2009/forgettable_presidents/james_buchanan.jpg)
 
 Considered by many the worst president ever and was a huge cause of the Civil War, history has not treated Buchanan well (despite saying 'history will vindicate my memory'). So how did he make this list? Well, he was the only bachelor president ever. That is sort of cool. Even as president, women always 'swiped left' on his Tinder profile. I guess I can sort of relate to this guy. Yeah, he was inept and sort of a loser, so he needs this ranking more than other presidents. Don't worry Mr. Buchanan, the Spew vindicates you, even if all other historians don't.
 
 
 # 9. Benjamin Harrison
 
-![](https://www.phideltatheta.org/wp-content/uploads/2013/08/Benjamin_Harrison.jpg)
+![](http://cdn.history.com/sites/2/2013/11/Benjamin_Harrison-AB.jpeg)
 
 Another president considered by many to be on the lame side, Benjamin Harrison has two major distinctions: 
 
@@ -33,13 +33,13 @@ Hipsters all across America look towards the day where a white man with a beard 
 
 # 8. Millard Fillmore
 
-![](http://www.knowyourpresidents.com/wp-content/uploads/2015/11/president13-Millard-Fillmore-8x8-721.jpg)
+![](http://americanhistory.si.edu/presidency/timeline/pres_era/images/pres/pres_medium/fillmore_M.jpg)
 
 A man named 'Millard' existed? And he actually became president? I know, crazy huh? Other than having a disproportional amount of 'l's in his name, he is also known as the last Whig party president. He was so bad as a president, he literally ruined an entire political party. He was like the last dodo and Phil Dunphy rolled into one. He later tried to start another political party named the Thoupee party, but America washed their hair of that party quickly. 
 
 # 7. James Polk
 
-![](http://www.civilwarshades.org/wp-content/uploads/shades_polk_0002.jpg)
+![](http://cdn.history.com/sites/2/2013/11/James_K_Polk-AB.jpeg)
 
 Known as 'Young Hickory' (a sobriquet that makes as much sense as 'Old Hickory'), Polk is the main reason why we have Texas. Now some may see that as a bad thing, but without Texas there would be no San Antonio Spurs, no Big 12 Conference, and no more movies about the Alamo. Polk flexed some American muscle, kicked out those pesky Mexicans from our land that we rightfully stole from Native Americans, and did this in only 1 term. Why not another? Because he didn't need 4 more years to kick ass.
 
@@ -47,14 +47,14 @@ Known as 'Young Hickory' (a sobriquet that makes as much sense as 'Old Hickory')
 
 # 6. Lyndon Johnson
 
-![](https://upload.wikimedia.org/wikipedia/commons/c/c3/37_Lyndon_Johnson_3x4.jpg)
+![](http://academics.wellesley.edu/Polisci/wj/Vietimages/Audio/347x420x0,,1020,,249029,,00.jpg.pagespeed.ic.fyzSMIVt9t.jpg)
 
 Lyndon Johnson, or as I like to call him 'LBJ' (I think the 'B' stands for 'Badass') passed more legislation that you can shake a stick at. And if there is one thing I know, you can shake a stick at a lot of legislation. He is known for passing legislation on civil rights, on gun control, on the space program, and on attacking Vietnam. But what I like the most about LBJ is he was known to be as mean as a snake, tactful as an ambassador, sly as a fox, and as cagey as the brown cagey-puffin of Peru. To bottom line it, he got things done by hook or by crook. Mostly by crook, but sometimes by hook as well. honestly, I don't know what that means.
 
 
 # 5. Thomas Jefferson
 
-![](http://a1.files.biography.com/image/upload/c_fit,cs_srgb,dpr_1.0,h_1200,q_80,w_1200/MTE5NDg0MDU1MDEwMjQ4MjA3.jpg)
+![](http://cdn.history.com/sites/2/2013/11/Thomas_Jefferson-AB.jpeg)
 
 Pre-presidential years, Jefferson with pen and paper, single-handedly declared us independent from England; something that took Gandhi years to do. So obviously Jefferson has to be on this list even if he did nothing as the head of state. But he also bought Louisiana and other territory for like a nickel from Napoleon (way to take advantage of a war monger Tommy!). Jefferson literally doubled the size of America without any war or death. Pretty cool, huh? So how do we commemorate him? By putting him on a shitty, rarely printed $2 bill. What kind of deal is that? And who is on the $50? That incompetent gassy general Ulysses Grant who was even a worse president. BOOOO!!!!! 
 
@@ -62,14 +62,14 @@ Pre-presidential years, Jefferson with pen and paper, single-handedly declared u
 
 # 4. Woodrow Wilson
 
-![](http://cdn.history.com/sites/2/2013/11/Woodrow_Wilson-H.jpeg)
+![](https://thecommonconstitutionalist.files.wordpress.com/2012/05/woodrow-wilson.jpg)
 
 Probably the most under-rated president ever, Wilson is accredited for reintroducing the State of the Union, 8-hour work days (instead of the previous 23 hour work day), single-handedly winning WWI by not even doing much, and starting the League of Extraordinary Gentlemen (later to become the League of Nations, later re branded as the United Nations). He also is the only president with a PhD; he taught and was president at Princeton. When you look at the history of where our presidents come from, they are all lawyers or generals. Yet in reality this is a job for a thinker; someone who is logical and can successfully deduce cause-and-effect factors. That is what Wilson was, and we haven't had many of that ilk since.
 
 
 # 3. Franklin Roosevelt
 
-![](http://cdn.history.com/sites/2/2013/11/Franklin_Delano_Roosevelt-H.jpeg)
+![](http://img.timeinc.net/time/photoessays/2011/top10_pol_feuds/fdr_congress.jpg)
 
 Talk about a kick-ass president who ironically wasn't even physically capable of kicking, FDR (not to be confused with 'False Discovery Rate') was involved in just about every major American event in the 20th century (of course he was president for about 80% of that time). Digging us out of the Great Depression? FDR. Creating jobs and stimulating the economy via government intervention? FDR. Bank regulation? FDR. Social Security? FDR. WWII? FDR. Conceptualizing the rate of type I error in null hypothesis testing when conducting multiple comparisons? FDR. Well, the other FDR to be fair.
 
@@ -79,7 +79,7 @@ There is even more FDR did, too much for me to write. He was the closest thing A
 
 # 2. Abraham Lincoln
 
-![](http://a4.files.biography.com/image/upload/c_fit,cs_srgb,dpr_1.0,h_1200,q_80,w_1200/MTIwNjA4NjMzODg2NTc0MDky.jpg)
+![](http://img.timeinc.net/time/photoessays/2008/speeches/speeches_lincoln.jpg)
 
 Is there anyone better than Lincoln? Well, maybe one other, but Lincoln should be 1a. He is a true inspiration for anyone; not born into wealth, self-educated, lost many elections yet still had the tenacity to continue, was a civil rights leader for not just African Americans but for Natives (at least by those times he was considered that), and fought vampires in his off time. Oh yeah, one more thing....**he united the Nation!!** Yeah South, put that in your pipe and smoke it. You can't secede the United States, so stop fighting the war, put away your hateful flag, and eat the crow that Lincoln served you raw. 
 
@@ -91,7 +91,7 @@ Like FDR, there are tons of things to be said about this guy, much of which Dani
 # 1. George Washington
 
 
-![](https://upload.wikimedia.org/wikipedia/commons/b/b6/Gilbert_Stuart_Williamstown_Portrait_of_George_Washington.jpg)
+![](http://cdn.history.com/sites/2/2013/11/George_Washington-AB.jpeg))
 
 
 
