@@ -14,7 +14,7 @@ share: true
 I hate these guys. I always have. In fact they were the first athletes I hated.
 
 
-If you don't know who those two asshats are, they are Darryl Strawberry and Dwight Gooden; two high level baseball prospects for the New York Mets that got more national attention than if Donald Trump rode a pegacorn into ISIS headquarters and shot them all with lasers shot out of his eyes. 
+If you don't know who those two asshats are, they are Darryl Strawberry and Dwight Gooden; two high level baseball prospects for the New York Mets that got more national attention than if Donald Trump rode a pegacorn into ISIS headquarters and killed them all with laserbeams shot out of his eyes. 
 
 
 
