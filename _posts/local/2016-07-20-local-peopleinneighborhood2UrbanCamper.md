@@ -20,7 +20,7 @@ This is part 2 of a 78 part series that explains the various type of people that
 
 
 
-*Found on many streets in Seattle, the urban camper is a cultural phenominom in the Pacific Northwest. The urban camper, or 'urbana campanus', is easily identifiable by their unwashed dreadlocks, unkept dog, hemp attire, bottles of urine, rancid stench, white skin, able but lazy body, and a strong sense of priviledge. Many times this species can be found on street corners and highway medians, using manipulative signs that say such things as 'I love you, please help' or 'Jesus is God, now give me some moeny for dope' to motivate guilt-ridden travelers out of their change. The urban camper lives in such places as under overpasses and government safespots like 'Tent City'. Favorite holiday: May-Day. The range of ages of an urban camper is 20-27. Side note: more commonly found in Portland; the land where young people go to retire.*
+Found on many streets in Seattle, the urban camper is a cultural phenomenon in the Pacific Northwest. The urban camper, or 'urbana campanus', is easily identifiable by their unwashed dreadlocks, unkempt dog, hemp attire, bottles of urine, rancid stench, white skin, able but lazy body, and a strong sense of privilege. Many times this species can be found on street corners and highway medians, using manipulative signs that say such things as 'I love you, please help' or 'Jesus is God, now give me some money for dope' to motivate guilt-ridden travelers out of their change. The urban camper lives in such places as under overpasses and government safe spots like 'Tent City'. Favorite holiday: May-Day. The range of ages of an urban camper is 20-27. Side note: more commonly found in Portland; the land where young people go to retire.
 
 
 
