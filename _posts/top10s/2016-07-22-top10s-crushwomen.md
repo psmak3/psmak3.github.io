@@ -68,7 +68,7 @@ I love Liz Lemon. She is sloven, she is a workaholic, she is awkward, and she is
 
 # 2. Rachel Maddow
 
-![](https://www.google.com/search?q=rachel+maddow&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiVyb-YxofOAhVPymMKHdpLAdgQ_AUICSgC&biw=1920&bih=995#imgrc=cATLQLq0tR217M%3A)
+![](http://static.bangordailynews.com/wp-content/blogs.dir/208/files/2016/01/Maddow2.jpg?strip=all)
 
 Best 20 minutes on TV every day is the opening act on the Rachel Maddow show. She has the ability to put a slant on things (usually liberal slant) without sounding preachy or judgmental. She is has the ability to deliver news of any sort without it sounding awkward or uncomfortable. She is smart as hell without coming off as a know-it-all. Oh yeah, she also is a big football fan! She is just the best. I could listen to her all day on our date, but she would be the type to want me to speak as well and would actually listen. If more media was like her, I bet the political environment in American would be much much better. However I think she is a lesbian (I must have a thing for them). At least that is what the LGBT bookstore near me seems to think. 
 
