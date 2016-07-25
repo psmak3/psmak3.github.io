@@ -35,8 +35,3 @@ But none of those things will be on possibly the greatest achievement in humanki
 
 
 
-
-
-
-
-

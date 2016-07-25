@@ -77,7 +77,7 @@ Best 20 minutes on TV every day is the opening act on the Rachel Maddow show. Sh
 # 1. Melissa McCarthy
 
 
-![](http://ia.media-imdb.com/images/M/MV5BMTIyMzU4OTE4OF5BMl5BanBnXkFtZTcwNTk2NzM2MQ@@._V1_SX640_SY720_.jpg)
+![](http://cdn.uinterview.com/wp-content/uploads/2015/06/news-Melissa-McCarthy.jpg)
 
 
 Funniest woman in the world. Every character she plays makes me laugh. Granted, not all of her movies are good. In fact, most are actually not good at all. But she is never the reason for that. She is willing to make herself look like a fool, willing to look awkward, and willing to play straight when need be. She is a joy to watch on screen, regardless of some of the garbage films she has been cast in. I know, I know, most of you guys will say 'hey, she is fat', or 'she isn't attractive at all', or 'she is not even a lesbian'. Well I disagree. Yes, she is funny, but I think she is very attractive as well. A little chubby, but that is ok. She has a great round face and a great smile. So there!!! 
