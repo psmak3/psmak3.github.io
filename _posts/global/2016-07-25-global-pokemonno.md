@@ -29,7 +29,7 @@ Lastly, it is stupid.
 
 
 
-Now before you get all riled up at me, I get the nostalgia if it for some people. When I was a kid, all I did was play with Star Wars action figures. When I was a bit older, it was all Nintendo. I look back at that time and guess what? I still love Star Wars and will definitely buy that new 8-bit Nintendo thing coming in November (30 games, including Zelda, Mario, and Mega Man 2!!!!!). I am a bit too old for the TMNT craze, missed the Mighty Morphin thing by about 8 years, and way too old for Pokemon. So I know I may not be the target audience and also understand a bit of the appeal for some.
+Now before you get all riled up at me, I get the nostalgia it is for some people. When I was a kid, all I did was play with Star Wars action figures. When I was a bit older, it was all Nintendo. I look back at that time and guess what? I still love Star Wars and will definitely buy that new 8-bit Nintendo thing coming in November (30 games, including Zelda, Mario, and Mega Man 2!!!!!). I am a bit too old for the TMNT craze, missed the Mighty Morphin thing by about 8 years, and way too old for Pokemon. So I know I may not be the target audience and also understand a bit of the appeal for some.
 
 But here is the thing, 25ish year old and kids cannot account for the huge success of this app. That means **old people are playing it as well!!!**
 
