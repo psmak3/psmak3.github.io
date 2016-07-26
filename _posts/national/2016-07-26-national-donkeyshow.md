@@ -26,7 +26,7 @@ But what makes this version even more troublesome to this life-long liberal is t
 1) Bernie Sanders fans holding disruptive yet childish protests during some of the speeches. It reminds me of 4th grade, when my class decided to disrupt the teacher when we all coughed in unison at precisely 1:00; annoying and ineffective all at the same time. 
 
 
-2) The fact those Sanders protesters had good reason to be upset. I mean when Admiral Ackbar's daughter is out to sabotage your campaign, ire is bound to occur. I mean at least she stepped down in shame and hopefully will never be heard from again, but there is still some damage repair needed. Watch out Bernie, it's a trap!!!!
+2) The fact those Sanders protesters had good reason to be upset. I mean when DWS and Co. is out to sabotage your campaign, ire is bound to occur. I mean at least she stepped down in shame and hopefully will never be heard from again, but there is still some damage repair needed. 
 
 
 3) The overall elitist feel of the day.
