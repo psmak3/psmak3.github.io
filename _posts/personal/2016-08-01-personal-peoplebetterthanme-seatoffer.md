@@ -29,7 +29,7 @@ A man, not much older than I, had a left side window seat near the front
  (prime real estate on the C Line bus going to downtown because of the great view of the Space Needle) got up and **gave up** his seat to the old woman, which forced the man in an uncomfortable standing position, as I was at the time.
  
  
-When I saw this gesture of good will, I realized that this man is a man of integrity and principled; far more than I am.  
+When I saw this gesture of good will, I realized that this man is a man of integrity and principle; far more than I am.  
 
 Other than the fact I would have never forfeited an a-one bus position like that to the very woman who was delaying my commute, it is also true that my first instinct was to rush to the front and steal the seat before she could get herself in the position to sit down. Don't worry, I was too far away to make that a tangible action.
 

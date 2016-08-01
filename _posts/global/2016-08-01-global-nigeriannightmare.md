@@ -48,7 +48,7 @@ So it looks like that Nigerian prince will still receive my generous donation. I
 
 
 
-*From:Mohammed Abacha Lagos-Nigeria Tel: 234-80-34069502
+*From:Mohammed Abacha Lagos-Nigeria Tel: 234-80-34069502*
 
 Dear Sir/Madam
 
@@ -72,7 +72,7 @@ Also this transaction demands absolute confidentiality.On no condition must you 
 
 Best Regards,
 
-Mohammed Abacha*
+Mohammed Abacha
 
 
 
