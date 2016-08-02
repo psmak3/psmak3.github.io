@@ -63,7 +63,7 @@ And these are some of the women he was courting:
 I mean he has zero chance with these women. Ailes is the personification of 'swipe left'. If he was going to have any chance with them he had to go to extreme measures; aka bullying, throwing around power, offering plum jobs despite not being qualified, blackmail, maybe a pubic hair on a Coke ala the Honorable Clarence Thomas, and other general forms of harassment. He really had no other recourse.
 
 
-Again, look at this guys!!
+Again, look at this guy!!
 
 
 ![](http://i.dailymail.co.uk/i/pix/2016/07/13/02/3634A24C00000578-0-image-a-2_1468373280057.jpg)
