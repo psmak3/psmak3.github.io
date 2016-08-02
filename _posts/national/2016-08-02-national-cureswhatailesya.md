@@ -69,7 +69,7 @@ Again, look at this guy!!
 ![](http://i.dailymail.co.uk/i/pix/2016/07/13/02/3634A24C00000578-0-image-a-2_1468373280057.jpg)
 
 
-And let's face it, these unorthodox tactics worked out well for him. Promoting moralistic values and slamming others who do not adhere to his high standards yet doing all of this for over 20 years....this has been a hell of a run. Sure, there is a bit of shame at the end of it all, but what is the true penalty? Loss of money? No. Jail time? No. Fox News losing the respect of their core fanbase? Hell no. Just a bit of egg on the jowls of ole' Roger Ailes. 
+And let's face it, these unorthodox tactics worked out well for him. Promoting moralistic values and slamming others who do not adhere to his high standards yet being the most dangerous form of sexual predator, and doing this for over 20 years....this has been a hell of a run. Sure, there is a bit of shame at the end of it all, but what is the true penalty? Loss of money? No. Jail time? No. Fox News losing the respect of their core fanbase? Hell no. Just a bit of egg on the jowls of ole' Roger Ailes. 
 
 
 Maybe he isn't so out of touch with reality after all?
