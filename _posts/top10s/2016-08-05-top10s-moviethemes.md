@@ -162,7 +162,7 @@ Instead of wazing poetically about the greatness of this man, I'll rank my top f
 
 ## 2. ET 
 
-![](https://www.youtube.com/watch?v=joChBU1v1eo)
+![](http://www.scruffles.net/spielberg/movies/images/et-1.gif)
 
 [Click here to listen](https://www.youtube.com/watch?v=g2dJCtATZ9A)
 
