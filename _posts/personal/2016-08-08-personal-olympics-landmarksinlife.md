@@ -27,7 +27,7 @@ I've always had a soft spot for the Olympics. Not because of the great athletic 
 
 
 
--1992: I was in high school, so obviously I was way too cool to love the Olympics as I did as a youth. But the Barcelona games were still so intriguing; the Dream Team beat everyone by 1000 points, Javier Sotomayer was trying to jump over the moon, the Dan vs Dave Reebok promotion bit the dust when Dan (the better of the two) couldn't pole vault, and an old Carl Lewis still won a gold in the long jump.
+- 1992: I was in high school, so obviously I was way too cool to love the Olympics as I did as a youth. But the Barcelona games were still so intriguing; the Dream Team beat everyone by 1000 points, Javier Sotomayer was trying to jump over the moon, the Dan vs Dave Reebok promotion bit the dust when Dan (the better of the two) couldn't pole vault, and an old Carl Lewis still won a gold in the long jump.
 
 - 1996: I was in college, working at a bowling alley during the Atlanta games. I watched almost every event through the bar window as I was cleaning up cigarette butts. From Kerri Strugg performing an unnecessary vault to win the gold for Team USA to Michael Johnson running the most absurd 200m time in history, I'll have those memories along with wiping up split beer with a dirty rag.
 
@@ -35,16 +35,16 @@ I've always had a soft spot for the Olympics. Not because of the great athletic 
 - 2000: I was in grad school training to be a teacher during the Sydney games. Ian Thorpe was the star of this iteration, but there was also Maurice Greene running really really fast and some Greek guy winning the 200m. 
 
 
--2004: I was teaching at this time of my life when the Olympics were back in Athens. Olympics in Athens just feel much more authentic. I am not exactly sure why; it is not like Plato is wrestling Archimedes naked while Zeus is watching from above. But they do feel different. What I remember the most, other than grading papers of kids who clearly didn't understand anything Pythagoras said, was that the US basketball team lost. That is pretty funny.
+- 2004: I was teaching at this time of my life when the Olympics were back in Athens. Olympics in Athens just feel much more authentic. I am not exactly sure why; it is not like Plato is wrestling Archimedes naked while Zeus is watching from above. But they do feel different. What I remember the most, other than grading papers of kids who clearly didn't understand anything Pythagoras said, was that the US basketball team lost. That is pretty funny.
 
 
--2008: I was watching the opening ceremonies in Beijing in my new house I bought. I remember the world becoming a little scared seeing all of that coordinated manpower; it was the Western world's first glimpse into what China is and what China can be. Oh yeah, Michael Phelps won like 80 gold medals and Usain Bolt ran faster than anyone has ever ran before.
+- 2008: I was watching the opening ceremonies in Beijing in my new house I bought. I remember the world becoming a little scared seeing all of that coordinated manpower; it was the Western world's first glimpse into what China is and what China can be. Oh yeah, Michael Phelps won like 80 gold medals and Usain Bolt ran faster than anyone has ever ran before.
 
 
--2012: Going back to school to change careers and become what I am now. During this time, I got to see what London had to offer. These Olympics played out sort of the same way as '08, where Phelps won 80 golds and Usain was insane. What was more insane was the prob theory classes I had to take. Yes, I passed, but I certainly didn't deserve any medals for it.
+- 2012: Going back to school to change careers and become what I am now. During this time, I got to see what London had to offer. These Olympics played out sort of the same way as '08, where Phelps won 80 golds and Usain was insane. What was more insane was the prob theory classes I had to take. Yes, I passed, but I certainly didn't deserve any medals for it.
 
 
--2016: My first Olympics in Seattle. Let's see what happens......
+- 2016: My first Olympics in Seattle. Let's see what happens......
 
 
 
