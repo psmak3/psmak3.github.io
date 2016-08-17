@@ -74,7 +74,7 @@ There is nothing to say here. This is just so stupid I have to stop.
 There are literally dozens more shitty characters in the Hanna-Barbera world. And you know why? It took them probably 15 seconds to create one of these bland cartoons. Hey, a penguin who is green...let's call him 'Green Penguin' and give him a New York accent. Oh I have an idea....a lion who is sad....let's call him 'Cryin' Lion' and give him a Scottish accent. Hey, how about an ape who is purple and call him Grape....oh nevermind, did that one last week.
 
 
-The worst thing is that Hann-Barbera had their non-creative claws all over children's cartoons in the 70's and 80's. I couldn't avoid them!! Luckily for the next generation, this monopoly of banality was somewhat broken up and there emerged some competition. But damn...I really use that time back. 
+The worst thing is that Hann-Barbera had their non-creative claws all over children's cartoons in the 70's and 80's. I couldn't avoid them!! Luckily for the next generation, this monopoly of banality was somewhat broken up and there emerged some competition. But damn...I really could use that time back. 
 
 Grape Ape? Grape fuckin' Ape? Seriously?
 
