@@ -48,7 +48,7 @@ This guy was brought in when the writers of the Flintstones ran out of ideas. It
 
 - Scrappy Doo
 
-![](http://static.tvtropes.org/pmwiki/pub/images/scrappy-doo_124281a_2237.gif)
+![](https://s-media-cache-ak0.pinimg.com/236x/15/9a/d6/159ad690a6dd2ff8a87ebb3900de85b3.jpg)
 
 God, did anyone like this guy? All Scrappy Doo wanted to do was fight. I guess he was 'Scrappy'. Good one Hanna and/or Barbera. I can't even find the words to describe how annoying this little terd was.
 
