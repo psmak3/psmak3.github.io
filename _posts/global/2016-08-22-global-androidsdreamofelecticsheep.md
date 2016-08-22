@@ -19,7 +19,7 @@ I mean I know what it does, but what is it really? Is it a magical force that po
 
 Electricity was invented by Ben Franklin when his kite was struck by lightning and a key captured the mighty power of the current. However he didn't know what to do with this new-found force, so he later just had sex with a french prostitute.
 
-Years later, Nikolai Tesla helped hone and harness the power of electricity documented by the Spew awarding-winning film 'The Prestige'. 
+Years pass with no one understanding what the hell is going on with this 'electricity', until Nikolai Tesla helped hone and harness this outre power documented by the Spew awarding-winning film 'The Prestige'. 
 
 Then some other things happened and now we have electricity flowing everywhere in the world.
 
