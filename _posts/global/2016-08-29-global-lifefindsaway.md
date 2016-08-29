@@ -40,7 +40,8 @@ Well, I'll break it down into three categories:
 
 We have already found some of this crap on meteors. I mean don't get me wrong, life from outer space in any form is very interesting. But I wouldn't cross the street to see this life, much less travel 4+ light years to visit it.
 
-### Result: More evidence that advanced life outside Earth is extremely rare if existent at all. Mars is our next door neighbor; if any planet should have as well it is Mars. And it doesn't If Proxima B, a very rare find indeed, also doesn't have cool life, maybe we are alone, or more alone than most think.
+### Result: 
+More evidence that advanced life outside Earth is extremely rare if existent at all. Mars is our next door neighbor; if any planet should have as well it is Mars. And it doesn't If Proxima B, a very rare find indeed, also doesn't have cool life, maybe we are alone, or more alone than most think.
 
 
 # 2. Ecosystem (aka: Avatar Life): P(event)=.000000001%
@@ -51,7 +52,8 @@ We have already found some of this crap on meteors. I mean don't get me wrong, l
 
 This would be amazing; an entirely functional system of animals and plants that have survived for years. This could be like what Earth was like when dinosaurs were still poking around. This would be the biggest discovery in the history of mankind.
 
-### Result: We should all quit our jobs and organize in an insect-like fashion (ala Starship Troopers), believe in the common goal of visiting this planet, and work towards that goal as a society. Our modern form of travel, IE: using combustion, wastes about 99% of potential energy. In other words, it is very inefficient. We need to find a new way to harness the energy in matter so we can travel close to light speed, and be neighborly and stop by our newly found friends. Heck, we may find some Unobtainium there as well.
+### Result: 
+We should all quit our jobs and organize in an insect-like fashion (ala Starship Troopers), believe in the common goal of visiting this planet, and work towards that goal as a society. Our modern form of travel, IE: using combustion, wastes about 99% of potential energy. In other words, it is very inefficient. We need to find a new way to harness the energy in matter so we can travel close to light speed, and be neighborly and stop by our newly found friends. Heck, we may find some Unobtainium there as well.
 
 
 # 3. Advanced Civilization (aka: Game Changer): P(event)=you wish
@@ -62,7 +64,8 @@ This would be amazing; an entirely functional system of animals and plants that 
 
 This discovery would make finding an alien ecosystem look like nothing. To find a civilization more advanced than ours would be the most important possible discovery ever by far. We would question everything in our lives, from religion to our cosmic place to overall purpose in life. Wow. I can't begin to imagine the impact of this.
 
-### Result: We focus everything we got in to contacting and understanding this alien society. Maybe we can share great ideas; they introduce to us flying cars and we introduce to them the Lord of the Rings saga or they share with us knowledge of the universe and we help them draft their fantasy football team. Oh what fun we could have. :)
+### Result: 
+We focus everything we got in to contacting and understanding this alien society. Maybe we can share great ideas; they introduce to us flying cars and we introduce to them the Lord of the Rings saga or they share with us knowledge of the universe and we help them draft their fantasy football team. Oh what fun we could have. :)
 
 
 
