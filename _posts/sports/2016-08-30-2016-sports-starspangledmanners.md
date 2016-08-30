@@ -24,7 +24,7 @@ Before I get into the background of this guy, let me be clear; I don't care if h
 But alas it is not. 
 
 
-I know some people are latching onto his 'stand' (ironic pun intended) as he is some sort of leader or brave soul who is trudging into dangerous ground. But `let's look at some of his history first:
+I know some people are latching onto his 'stand' (ironic pun intended) as he is some sort of leader or brave soul who is trudging into dangerous ground. But let's look at some of his history first:
 
 
 - Adopted by a white family at the age of zero, his mother (who he knows) is white and his dad (who ditched out and never returned) is black. I'll let that ironic factoid marinate for a bit.

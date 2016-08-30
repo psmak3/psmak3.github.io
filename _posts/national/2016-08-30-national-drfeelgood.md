@@ -20,7 +20,7 @@ But nothing is *routine* in the world of Donald Trump.
 About a few months ago, Donald Trump released his bill of health onto the free world. This is how it read:
 
 
-![](https://www.google.com/search?q=trump+doctor+record+in+full&biw=1920&bih=995&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjiqaP8uunOAhUM2mMKHTaoBjkQ_AUICCgD#imgrc=ZqOck673QbYUcM%3A)
+![](https://cdn0.vox-cdn.com/thumbor/csTQTz2hlHsdeAYovXqz0Ka8b_A=/cdn0.vox-cdn.com/uploads/chorus_asset/file/4975145/Screen_Shot_2015-12-14_at_1.54.54_PM.0.png)
 
 And it came from this guy....
 
