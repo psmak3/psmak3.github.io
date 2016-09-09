@@ -9,6 +9,7 @@ share: true
 
 ![](http://amhsnewspaper.com/wp-content/uploads/2015/12/FF.jpg)
 
+*It is coming.....it is coming......it is almost here!!!! The NFL is starting up once again and I cannot be happier. So the Spew is engaging in a week-long celebration of all things football.*
 
 
 I do not care about your Fantasy Football team.
