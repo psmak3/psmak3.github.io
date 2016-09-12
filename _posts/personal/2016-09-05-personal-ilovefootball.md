@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Why I Love Football"
+title: "Football Week: Why I Love Football"
 excerpt: "Personal"
 categories: personal
 comments: false

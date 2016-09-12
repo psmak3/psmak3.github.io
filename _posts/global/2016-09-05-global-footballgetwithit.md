@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Get With the Program, World!"
+title: "Football Week: Get With the Program, World!"
 excerpt: "Global"
 categories: global
 comments: false
