@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "NFL Predictions"
+title: "Football Week: NFL Predictions"
 excerpt: "Sports"
 categories: sports
 comments: false

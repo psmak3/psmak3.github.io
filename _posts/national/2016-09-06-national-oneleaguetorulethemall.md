@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "One League to Rule Them All"
+title: "Football Week: One League to Rule Them All"
 excerpt: "National"
 categories: national
 comments: false
