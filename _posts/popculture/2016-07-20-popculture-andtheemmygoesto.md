@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "And the Emmy Goes to.....Comedies"
+title: "And the Spewie Goes to.....Comedies"
 excerpt: "Pop Culture"
 categories: popculture
 comments: false
@@ -13,7 +13,7 @@ share: true
 This week the good people at the Emmy Awards announced their 2016 nominations. 
 
 
-Today I will break down the seven nominees for best comedy and give you the Spew's first annual 'Should-be Winner of Emmy':
+Today I will break down the seven nominees for best comedy and give you the Spew's first annual 'Spewie' award winner in TV comedy:
 
 
 # black-ish:
@@ -87,7 +87,7 @@ This show is wickedly funny. Julie Louise-Dreyfus is simply awesome in this show
 
 <br>
 
-So congratulations Veep, you are the official winner of the first annual 'Should-be Winner of Emmy' award given out by the Spew.
+So congratulations Veep, you are the official winner of the first annual 'Spewie' award.
 
 
 

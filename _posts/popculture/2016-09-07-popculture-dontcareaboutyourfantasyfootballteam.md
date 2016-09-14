@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "I Don Not Care About Your Fantasy Football Team"
+title: "Football Week: I Do Not Care About Your Fantasy Football Team"
 excerpt: "Pop Culture"
 categories: popculture
 comments: false
