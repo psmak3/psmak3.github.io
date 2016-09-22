@@ -24,7 +24,7 @@ Meanwhile as they are lost, they are crying like the little tender babies they a
 You know what the worst thing is in all of this? After they get saved, I bet dimes to dollars they post on their Tinder profile how brave they are and that minstrels are now composing motets that sing the praises of their heroic exploits. Better yet, they will have some lame-ass picture on their profile when them in their REI gear posing in front of some mountain or tree, ignoring the fact their own self-constructed trip into the wild ended up in absolute failure and embarrassment. 
 
 
-I say let them have their true adventure, let them get lost, stay lost, and there is one less Subaru we have to deal with on the road. Let us not interfere with Social Darwinism.
+I say let them have their true adventure, let them get lost, stay lost, and there is one less Subaru we have to deal with on the road. Who are we to interfere with natural selection?
 
 
 
