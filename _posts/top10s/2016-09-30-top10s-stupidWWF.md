@@ -63,7 +63,7 @@ This guy was the creepiest wrestler in the history of wrestling. In interviews, 
 
 # 4. Doink the Clown
 
-![](http://www.onlineworldofwrestling.com/wp-content/uploads/2012/04/doink-2.jpg)
+![](http://wwfoldschool.com/wp-content/uploads/2015/10/Top-5-Wrestlers-Who-Portrayed-Doink-The-Clown.jpg)
 
 
 First off, we can all agree clowns are generally off-putting. They mime, they pull stupid pranks like dumping water on people's heads or throw confetti at the crowd, then they laugh at their own idiotic antics like they are really killing it. We all hate clowns. So it is natural for a wrestler, who dresses as a clown, who acts like a clown, would be high on this list. Now I know there is a case to be made for Doink; clowns are often viewed as sinister (thanks John Wayne Gacy) and that evil aura can be compelling to the wrestling world. But no. Sorry. Doink was neither evil or edgy. He was just simply annoying. He would run into the ring doing stupid clown shit to audience members, dance around his opponent and mocking him in typical annoying clown-like fashion, not do anything athletic because the character was played by a fat uncoordinated old white guy from the local trailer park, and then win. Why would he win? Well, this shit is fake, so Vince McMahon wanted him to win. To make matters worse, there were multiple Doinks. YES!!! There was not just one, there were several of these fools running amok in the WWF. When one of the guys playing Doink would quit, or OD, or whatever wrestlers do, there would be another waiting to e the call to don the unitard of Doink. You just couldn't get rid of this guy.  
