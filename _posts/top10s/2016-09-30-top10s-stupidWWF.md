@@ -96,7 +96,7 @@ The Red Rooster, aka Terry Taylor, originally came into the WWF as....uh...Terry
 
 # 1. Gobbledy Gooker
 
-![](https://sistemaperalta.files.wordpress.com/2015/09/gobbledygooker.png)
+![](http://img.bleacherreport.net/img/images/photos/002/002/231/tumblr_lv8m46jmqg1r3bwqwo1_500_crop_north.jpg?w=467&h=311&q=75)
 
 Staying within the poultry family, I would be derelict in my duty not to mention the Gobbledy Gooker, the single stupidest idea in the history of not just the WWF, but possibly of mankind. Originally hatched, yes he literally hatched out of an egg, in 1990 at the Survivor Series, his purpose to this day in unclear. There was a huge promotion for the Survivor Series (always set during Thanksgiving time) about this 'big mysterious surprise' that was going to be revealed during said event. This 'surprise' came in the form of a big egg laid on a platform to the side of the ring around the end of the Survivor Series. What could be in this egg? I mean this has been hyped for months, it had to be something good. Actually, no, it does not have to be something good. When hatched, a man in a turkey suit squeezed out of his ovoid prison, and...well..it turned out to be that thing in the picture above; the Gobbledy Gooker. After this birth, the fans in the arena were both perplexed and angry, booing loudly at this bizarre nightmare of a promotion. Moments later, the Gooker started to dance with Mean Gene to 'Turkey in the Straw', then left. This character, or whatever the hell it was, continued on tour for a few months before the guy playing him busted his knee entering the ring because his mask was positioned wrong and he couldn't see. A proper end to this absolutely strange story.   
 
