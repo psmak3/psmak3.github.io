@@ -44,7 +44,7 @@ Still don't think I am victim? Hmmm...well, did I mention I am 2/15ths Native Am
 
 
 
-![](http://imgur.com/BAg9Cw4)
+![](https://cdn.meme.am/instances/59022390.jpg)
 
 
 
