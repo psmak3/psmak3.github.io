@@ -26,7 +26,7 @@ Saturday evening, the time that Songda was supposed to rip through the Sound lik
 
 Here is a picture of her during the 'storm of the decade':
 
-
+![](http://psmak3.github.io/images/arwensleep.JPG)
 
 
 Yeah, that pretty much sums it up.
