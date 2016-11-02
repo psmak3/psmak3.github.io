@@ -22,7 +22,7 @@ Cubbies, Cubbies, Cubbies, Cubbies, Cubbies, Cubbies, Cubbies, Cubbies, Cubbies,
 I have always loved the Chicago Cubbies. Been a lifelong fan, ie: 2 weeks ago, and love the Cubbies with all my heart.
 
 
-Remember the time that guy got a hit for the Cubs and they won? Remember that other time when that other guy pitched the ball and the Cubbies won the game? That was so awesome!!!!
+Remember the time that guy got a hit for the Cubbies and they won? Remember that other time when that other guy pitched the ball and the Cubbies won the game? That was so awesome!!!!
 
 
 
