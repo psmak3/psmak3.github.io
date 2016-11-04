@@ -76,7 +76,7 @@ These cars are just so fuckin' reliable, they have to be on this list. I mean th
 
 # 2. Lamborghini Countach: 1984
 
-![](https://www.google.com/search?q=lamborghini+countach&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiB8rqNuY_QAhXnsFQKHfwbD6UQ_AUICCgB&biw=1920&bih=990#imgrc=1Z20ibyt-8oncM%3A)
+![](https://s-media-cache-ak0.pinimg.com/originals/12/62/30/126230f7f2bf832a8bab6fb59fe71b30.jpg)
 
 This is the dream car for every boy growing up in the 80's. It was ridiculously exotic. Nothing else on Earth looked like it at the time. It is stupidly conspicuous and ostentatious; it literally looks like a rocket ship. But man oh man, every young lad wanted to pilot one of these guys to the moon and beyond. I think I had about 4 Hot Wheels dedicated to the Countach; various colors like orange, white, red, silver, etc. This is the design that all exotic car lovers think of when hearing the name 'Lamborghini'. Sure, they have made faster cars, more luxurious cars since the Countach. But nothing parallels this dude in terms of design and time in history when released; a true symbol of the decadent 80's. 
 
