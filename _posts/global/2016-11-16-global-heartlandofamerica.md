@@ -59,7 +59,7 @@ So let's look a bit deeper now; closer at the Democratic party. Who are the heav
 
 See a trend? All the DNC representation comes from the East Coast. Other than Nancy Pelosi (CA) and Harry Reid (NV, but retiring), every single big name in the Democratic party is really a party of East Coast elites. 
 
-So you don't think there is east coast bias in the DNC? Well........
+So you don't think there is East Coast bias in the Democratic Party? Well........
 
 Let's look at MSNBC; the beacon of liberal ideas on cable TV. I see every voting demographic covered on this network with regular pundits that appear every day on their various shows. Races? Black, white, Hispanic, Asian....covered. Genders? Both men and women aplenty. Religion? Muslim, Jewish, Christian. Ages? Mostly middle-aged, but some young and some old as well. 
 
@@ -72,10 +72,10 @@ I feel this media bias is a real problem. Obviously I see it in sports far more 
 Have you ever felt ignored? It sucks. I have felt that most of my life; from social slights to living a great deal of time in a city that 80% of New Yorkers can't point out on a map. Being ignored feels like you are outside a party where everyone is having a great time and all you are allowed to do is look through the window at all the fun everyone else is having.
 
 
-I have heard somne news agencies identify this as another possible cause for 'The Rise of Trump', so I am not the only one musing about this. The question is this: *will any network do annything about this and try to represent not just racial, gender, religious, cultural diversity, but also geographic diverstiy?*
+I have heard somne news agencies identify this as another possible cause for 'The Rise of Trump', so I am not the only one musing about this. The question is this: *will any network do annything about this and try to represent not just racial, gender, religious, cultural diversity, but also geographic diversity?*
 
 
-Chris Matthews said this: 'If I was president, the first thing I would do is build a railroad that spans from DC to LA. I would put one of those really fast trains on it like they have in Tokyo, make it real nice. So when people travel coast to coast, they realize there actually is a Cleveland, St Louis, Topeka, etc. instead of flying over those cities all the time'.
+Chris Matthews said this: 'If I were elected president, the first thing I would do is build a railroad that spans from DC to LA. I would put one of those really fast trains on it like they have in Tokyo, make it real nice. So when people travel coast to coast, they realize there actually is a Cleveland, St Louis, Topeka, etc. instead of flying over those cities all the time'.
 
 I don't know if Chris was serious or even if knows geography that well (doesn't seem like he does), but I think the sentiment is 100% in the right place.
 
