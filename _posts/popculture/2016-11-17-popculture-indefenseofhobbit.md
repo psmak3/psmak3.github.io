@@ -7,7 +7,7 @@ comments: false
 share: true
 ---
 
-![](https://d3ui957tjb5bqd.cloudfront.net/uploads/2014/11/the-hobbit-8.jpg)
+![](https://atolkienistperspective.files.wordpress.com/2014/07/the-hobbit-trilogy-teaser-posters.jpg)
 
 
 **This is the 2st installment of a 5,257 part series on the Spew: 'In Defense of:'. This series is meant to defend the helpless, the meek, and the bullied in our pop culture.**
