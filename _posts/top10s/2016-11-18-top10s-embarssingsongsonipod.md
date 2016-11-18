@@ -7,13 +7,15 @@ comments: false
 share: true
 ---
 
-
+Note: You can listen to all of these songs if you click to title, although I am not sure if that is a good idea.
 
 # 10. [Rainbow Connection: Kermit the Frog](https://www.youtube.com/watch?v=jSFLZ-MzIhM)
 
 ![](http://vignette1.wikia.nocookie.net/muppet/images/d/d2/Rainbow_connection_finale.JPG/revision/latest?cb=20130815153312)
 
 I'm not sure if this one belongs on the list. I mean it is such a good song and brings back many memories. Jim Henson was a true creative talent; composer, director, and master puppeteer (or should I say 'muppeteer'?). Rainbow Connection is a song of hope and belief. So yes, it is a children's song and probably the prime reason why I placed it on this list. But fuck me for doing it! Bad call Spew.
+
+
 
 
 
