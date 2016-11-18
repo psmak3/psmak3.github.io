@@ -71,7 +71,7 @@ TV themes can be cool; Rockford Files, Bob Newhart Show, Games of Thrones, etc. 
 
 
 
-Another cover song, but this one is actually better than the original. Well, at least it is close to as good. I like 'Sailing', and so did 1980 when Christopher Cross won about every Grammy you can win. I don't think enjoying a peaceful getaway via the soft sounds of 'Sailing' is the bad part. I think a grown man having any N'Sync song on their playlist is pretty embarrassing. In my defense, at least it is a reasonable rendition that Mr. Cross would be proud of. But not in my defense, it still is a teenie bopper band from the 90's that made it on the iPod. 
+Another cover song, but this one is actually better than the original. Well, at least it is close to as good. I like 'Sailing', and so did 1980 when Christopher Cross won about every Grammy you can win. I don't think enjoying a peaceful getaway via the soft sounds of 'Sailing' is the bad part. I think a grown man having any N'Sync song on their playlist isthe bad part. In my defense, at least it is a reasonable rendition that Mr. Cross would be proud of. But not in my defense, it still is a teenie bopper band from the 90's that made it on the iPod. 
 
 
 # 3. [Quit Playing Games With My Heart: Backstreet Boys](https://www.youtube.com/watch?v=Ug88HO2mg44)
@@ -97,7 +97,7 @@ I think the worst part about 'Mandy' being on my playlist is not that it is Barr
 ![](https://i.ytimg.com/vi/Qe4nZ3XRhcI/hqdefault.jpg)
 
 
-I remember at one point in my life, I liked this song. It has a retro feel to it and is unoffensive to the ears. But here is the issue; I usually use my iPod when I work out. There are some lifts that are more dangerous than others (such as the bench press), and when you put a lot of weight on, you have to concentrate. I swear, every time I am doing a heavy lift, my iPod skips and I start to hear the dinging of a piano and the lines 'Once in your life you find her...'. I just have to stop my lift and just turn it off. There is nothing more demotivating than hearing 'When you get caught between the Moon and New York City' while trying to max out. It is actually quite dangerous. You need Metallica, Slipknot, Manson, hell anything but Christopher fuckin' Cross crooning about Dudley Moore circa 1980. 
+I remember at one point in my life, I liked this song. It has a retro feel to it and is unoffensive to the ears. But here is the issue; I usually use my iPod when I work out. There are some lifts that are more dangerous than others (such as the bench press), and when you put a lot of weight on, you have to concentrate. I swear, every time I am in the middle of a heavy lift, my iPod skips to a new song, and I start to hear the dinging of a piano and the lines 'Once in your life you find her...'. I just have to stop my lift and just turn it off. There is nothing more demotivating than hearing 'When you get caught between the Moon and New York City' while trying to max out. It is actually quite dangerous. You need Metallica, Slipknot, Manson, hell anything but Christopher fuckin' Cross crooning about Dudley Moore circa 1980. 
 
 I really got to get that out of the playlist. If for anything to save myself from the humiliation of a ton of weight crashing down and killing me, with the sounds of 'Best That You Can Do' blaring out of my earbuds. 
 
