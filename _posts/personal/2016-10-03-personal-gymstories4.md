@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Gym Stories: Part IV"
+title: "Gym Stories: Part V"
 excerpt: "Personal"
 categories: personal
 comments: false
@@ -10,9 +10,9 @@ share: true
 ![](https://az616578.vo.msecnd.net/files/responsive/embedded/any/desktop/2016/02/22/635917067014044111-941850887_6.png)
 
 
-Welcome to Gymtime Stories: Part IV of a CCXIII part series.
+Welcome to Gymtime Stories: Part V of a CCXIII part series.
 
-# Part IV: Gym Hog
+# Part V: Gym Hog
 
 
 I hate circuit training. First off, there is no science that shows it is an optimal way of working out. If you want to run around and work one body part, then work another, then another, then another, well fine. But do it at your own gym. We are at a public gym, stop running around like you have to get your next 1 set of 5 rows in 30 seconds or less. 
