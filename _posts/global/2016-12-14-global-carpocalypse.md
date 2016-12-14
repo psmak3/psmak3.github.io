@@ -40,9 +40,9 @@ Some specifics of the poll:
 
 
 
-This is an amazing find. I mean think about the chaos and mayhem that exists right outside your door. This is a miasma of danger and uncertainty that each one of us licensed drivers have to face on a daily basis. 
+This is an amazing find. I mean think about the chaos and mayhem that exists right outside your door. This is a miasma of danger and uncertainty that each one of us licensed drivers have to face on a daily basis. However the odds of dying in a car wreck is 1 in 606 for a lifetime (1 in 47,718 in a year).
 
-How we have all survived to this point must be an act of God. However the odds of dying in a car wreck is 1 in 606 for a lifetime (1 in 47, 718 in a year). With this much utter incompetence littering our streets, these slims odds must be a miracle. Just remember to never drive faster than your guardian angel.
+How we have all survived to this point must be an act of God. With this much utter incompetence littering our streets, these slims odds must be a miracle. Just remember to never drive faster than your guardian angel.
 
 
 * As an interesting side note: not one person surveyed considered themselves a bad driver. In fact,  nearly all 100% polled deemed themselves as 'very good drivers'. I guess we are all lucky that there are at least a few competent folks behind the wheel.  
