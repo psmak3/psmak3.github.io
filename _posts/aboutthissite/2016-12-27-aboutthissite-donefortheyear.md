@@ -14,7 +14,7 @@ share: true
 I am officially done for the year.
 
 
-When I saw the most disgusting, smug, disgraceful, reprehensible, fuckin' piece of garbage I have ever seen in my life walk off the field of the Clink on Saturday with a smile, I knew this was the proper shit flavored icing to this turd cake of 2016. Not only is this the worst Christmas I have ever had, this has been one bad year overall.
+When I saw the most disgusting, smug, disgraceful, reprehensible, piece of garbage walk off the field of the Clink on Saturday with a smile, I knew this was the proper shit flavored icing to this turd cake of 2016. Not only is this the worst Christmas I have ever had, this has been one bad year overall.
 
 I am not the only one who has experienced the arduous and soul-ripping claws of 2016; many of my friends have had their own personal and social aspects of their lives tarnished.
 
