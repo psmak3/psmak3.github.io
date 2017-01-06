@@ -1,10 +1,10 @@
 ----
--layout: post
--title: "Please, Just Let Me Watch the Damn Movie!!"
--excerpt: "Pop Culture"
--categories: popculture
--comments: false
--share: true
+layout: post
+title: "Please, Just Let Me Watch the Damn Movie!!"
+excerpt: "Pop Culture"
+categories: popculture
+comments: false
+share: true
 ----
 
 ![](http://3.bp.blogspot.com/-b3TFLy0KYVs/UgR1J8sij-I/AAAAAAAAEDY/l_KtV3tOIAA/s1600/Crowd-watching-movie-in-t-008.jpg)
