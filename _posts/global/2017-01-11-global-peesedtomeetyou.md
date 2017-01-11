@@ -23,7 +23,7 @@ One would think all of those character flaws would be enough to not win the pres
 But this latest character flaw takes the cake.
 
 
-Apparently our president-to-be is a Russian spy.
+Apparently our president-to-be is a Russian spy; Donaldir Trumpovski.
 
 If you go by the alleged intelligence reports leaked out by Buzzfeed, Mr. Trump, the man that garnered around 63 million votes, is in cahoots with Russia dating for over 5 years. These ties come in the way of real estate deals, covert under-the-table agreements, and other shady business dealings. 
 
@@ -41,10 +41,10 @@ I personally believe that Trump knew the Russians were siding with him before th
 
 
 
-Even though I still do not refer to myself as an American (I mean even without all of this juicy Russian gossip, he should have never received one vote), this Trump presidency is pretty much the most awesomest thing I have ever lived through. It is like a John Le Carre novel, except I don't feel like falling asleep during this one.
+Even though I still do not refer to myself as an American (I mean even without all of this juicy Russian gossip, he should have never received one vote), this Trump presidency is pretty much the most awesomest thing I have ever lived through. It is so rich with intrigue, scandal, global espionage, and international ramifications. It is like a John Le Carre novel, except I don't feel like falling asleep during this one.
 
 
-And as far as the pee-whores, well, I would be surprised if Trump didn't do this. Can you get more info on Pee-Gate Buzzfeed? Inquiring minds want to know. 
+But I have to admit my favorite part of all of this is part with the pee-whores. I mean really, I think we all saw this one coming. I would be surprised if Trump didn't do this. Can you get more info on Pee-Gate Buzzfeed? Inquiring minds want to know. 
 
 
 
