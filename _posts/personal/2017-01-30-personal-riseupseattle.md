@@ -20,6 +20,7 @@ So I am sure you are asking yourself 'Why is this under your personal posts? Thi
 Well, to answer your question, I was feeling very community-minded that day, so I actually went to this protest. And to see a movie afterwards at the Regal Theater 3 blocks down.
 
 
+
 Now I have never gone to one of these types of things before. I mean I have always had a soft spot for social protest and fighting against what is wrong, but I sort of let others that feel more self-important that myself handle such matters. But my curiosity got the best of me this Sunday and I wanted to see it for myself.
 
 And it was............sort of eh.
