@@ -11,7 +11,7 @@ share: true
 
 
 
-Yesterday in downtown Seattle, there was an 'emergency' protest organized by....uhhh.....people I guess.....to show support in not supporting the unsupportable ban on immigrants to this country. Literally thousands of people gathered along the corner near Nordstrom's to hear the governor opine about this ban, show off the clever signs they made at home, and to maybe shop around for some deals on cashmere sweaters if time allows.
+Yesterday in downtown Seattle, there was an 'emergency' protest organized by... .uhhh.....people I guess.....to show support in not supporting the unsupportable ban on immigrants to this country. Literally thousands of people gathered along the corner near Nordstrom's to hear the governor opine about this ban, show off the clever signs they made at home, and to maybe shop around for some deals on cashmere sweaters if time allows.
 
 
 So I am sure you are asking yourself 'Why is this under your personal posts? This is much more like those Global posts you write where you profess to know exactly how the world should be run'. 
