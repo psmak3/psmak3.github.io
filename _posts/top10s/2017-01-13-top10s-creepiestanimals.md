@@ -88,7 +88,7 @@ Slugs are all over the place in Seattle. They are in gardens, on the street, and
 
 # 2. Sea Cucumber
 
-![](https://cdn.psychologytoday.com/sites/default/files/field_blog_entry_images/slug_0.jpg)
+![](http://voices.nationalgeographic.com/files/2013/03/1471298-as-Smart-Object-1.jpg)
 
 OH MY GOD!! Look at this!! There is nothing not creepy about the sea cuke. They can be up to 10 feet long and as thick as your arm. These guys are not very smart because...well....they have no brain. But that just makes this all the creepier. I mean they don't even have the capacity to think, feel, love, or sing. They just sit there, feeding off the fear they inflict on all passer-bys. Luckily for us they live at the bottom of the sea, or else they may creep us out on a more regular basis.
 

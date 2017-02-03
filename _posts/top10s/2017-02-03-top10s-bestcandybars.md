@@ -47,8 +47,7 @@ Probably more noted for being the best topping in a DQ Blizzard, the English Tof
 
 ![](https://pbs.twimg.com/media/B-3a42aWkAAAA7K.png:large)
 
-The big daddy of them all, the Snickers bar is the most popular and most ingested sugary treat of them all. 
-And why you ask? Because it is good. Damn good. The peanuts, the nougat, the caramel, and of course the chocolate, the Snickers bar includes all of these sweets into one complex yet perfectly balanced eco-system of flavor. A nice side note is that it is quite filling, so you always end your Snickers snacking on a satisfied note.
+The big daddy of them all, the Snickers bar is the most popular and most ingested sugary treat of them all. And why you ask? Because it is good. Damn good. The peanuts, the nougat, the caramel, and of course the chocolate, the Snickers bar includes all of these sweets into one complex yet perfectly balanced eco-system of flavor. A nice side note is that it is quite filling, so you always end your Snickers snacking on a satisfied note.
 
 
 
@@ -89,7 +88,7 @@ By far, the most underrated candy bar of the lot; the combination of caramel and
 ![](https://metalsharkplayer.files.wordpress.com/2012/02/skor-bar.jpg)
 
 
-This guy is just a pure delight. On a hot summers day, nothing is more enjoyable than a glass of fresh well water along with a Skor bar straight from the fridge. Some may say this dark toffee concoction is someone on the snobby side of desserts; not only is the net oz/ dollar lower than the rest of the candy listed here, the name 'Skor' is Swedish for 'shoes'....I bet fancy shoes.....and the Swedish national emblem is in the 'O' of Skor. That is some pretty high brow stuff indeed. We all know the Swede's do not export garbage. Despite this aura of elitism that surrounds Skor, it is such a delectable treat that you cannot just have one. Although you should because they are extremely unhealthy.
+This guy is just a pure delight. On a hot summers day, nothing is more enjoyable than a glass of fresh well water along with a Skor bar straight from the fridge. Some may say this dark toffee concoction is someone on the snobby side of desserts; not only is the net oz-per-dollar ratio lower than the rest of the candy listed here, the name 'Skor' is Swedish for 'shoes'....I bet fancy shoes.....and the Swedish national emblem is in the 'O' of Skor. That is some pretty high brow stuff indeed. We all know the Swede's do not export garbage. Despite this aura of elitism that surrounds Skor, it is such a delectable treat that you cannot just have one. Although you should because they are extremely unhealthy.
 
 
 # 1. Symphony Bar
