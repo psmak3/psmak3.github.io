@@ -11,7 +11,7 @@ share: true
 
 # 10. Mudskipper
 
-![](http://www.japantimes.co.jp/wp-content/uploads/2013/05/nn20130530a6a-870x471.jpg)
+![](https://img.ifcdn.com/images/4124f9204e26e19489fa63dfb9898901fafd224ce00c773ebde1dea686f27919_1.jpg)
 
 
 These things are just plain creepy. Other than the obvious fact that they are literally fish out of water, they also always have their mouth wide open, gasping for breath. I guess this comes as no surprise, because they are literally fish out of water, but you would think this would be an indication that they do not belong on dry land with us. No noooo, they have to creep up amongst us humans, being all creepy and stuff.
