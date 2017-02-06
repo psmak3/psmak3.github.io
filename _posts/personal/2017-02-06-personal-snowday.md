@@ -14,7 +14,7 @@ share: true
 Snow day!!!! A day were all of Seattle crumbles into the fetal position and shuts down for the day.
 
 
-One city's weakness fo the elements is another man's reward; NO WORK TODAY!!!
+One city's weakness of the elements is another man's reward; NO WORK TODAY!!!
 
 
 
