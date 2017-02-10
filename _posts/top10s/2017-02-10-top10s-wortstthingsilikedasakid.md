@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Top 10 Worst Things I Liked as a Kid That Now Seem Stupid"
+title: "Top 10 Things I Liked as a Kid That Now Seem Stupid"
 categories: top10s
 excerpt: "Top 10"
 comments: false
@@ -46,6 +46,8 @@ Remember Falco? Probably not. Remember 'Rock Me Amadeus'? OK, that was Falco. Fa
 
 ![](http://blog.hydrotik.com/wp-content/teecee3.jpg)
 
+
+
 T&C Surf Designs was the rage at my elementary school in the mid 80s. There was a little yin/yang in the front of the shirt and on the back was a big display of one of those characters from the T&C universe doing something really cool. Why were these shirts so popular? I mean these little cartoon guys with surf boards and skating stuff is rooted in nothing tangible. I mean there is no comic book series or TV show (yes, they made a Nintendo game for it, but that is about it), why did we all need these posers on our back? Because we were kids; dumb stupid kids who have no taste or feel for marketing strategies targeted at us. 
 
 
@@ -53,6 +55,10 @@ T&C Surf Designs was the rage at my elementary school in the mid 80s. There was 
 
 
 ![](https://d1466nnw0ex81e.cloudfront.net/n_iv/600/1002971.jpg)
+
+
+
+
 It is funny how things can come out at the same time; VHS vs Beta, The Prestige vs The Illusionist, Newton vs Leibniz, Sega vs Nintendo, and Go-Bots vs Transformers. You may not remember Go-Bots, but they were the smaller Tonka version of the bigger Hasbro Transformers. All the kids at the time really liked the idea of toys that are a car and a robot, it was like two toys in one!! But which one of these franchises was going to last. Which one.....hmmmm. Well, I bet on Go-Bots, and I have dozens of these guys to prove it. Even though the jury is still out which toy line is more successful, I have a gut feeling I bet on the wrong pony in this race. 
 
 
