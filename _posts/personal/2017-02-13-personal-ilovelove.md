@@ -15,7 +15,7 @@ Tomorrow is my favorite holiday of the year; Valentine's Day.
 
 
 
-Founded by St. Valentine in 270 SD, St. Valentine (aka: the Love Guru) was a Roman priest who was imprisoned for illegally marrying Christian couples. You have to remember at that time, the majority of Christians were food for lions, and Claudis at the time was not too keen on this rogue priest wedding heretics. St. Valentine eventually died, but everyone knew of his great work in the field of love, so Western Civiliation granted him a day.
+Founded by St. Valentine in 270 SD, St. Valentine (aka: the Love Guru) was a Roman priest who was imprisoned for illegally marrying Christian couples. You have to remember at that time, the majority of Christians were food for lions, and Claudius at the time was not too keen on this rogue priest wedding heretics. St. Valentine eventually died, but everyone knew of his great work in the field of love, so Western Civiliation granted him a day.
 
 
 There is nothing I dislike about this day. Anyone who knows me personally knows how much I love to love, and because of this I try to spread my joy upon all people, great or small. 
@@ -29,9 +29,9 @@ In middle school, my favorite tag team was the Hart Foundation; Bret 'the Hitman
 Remember the Love Boat? My favorite show. The best episode is the one with Vic Tayback.....oh yeah that's about 5 of them. Anyway, Vic Tayback's grumpy yet affable way is the perfect personification of love. 
 
 
-And oh yeah....is there a finer show that Love, American Style? Truer than the red, white, and blue. Although dissolving into obsurity due to its unbridled tributes to love on a weekly basis (and the fact no one watched it), it will always be remembered as a pioneer in the genre of love.
+And oh yeah....is there a finer show that Love, American Style? Truer than the red, white, and blue. Although dissolving into obscurity due to its unbridled tributes to love on a weekly basis (and the fact no one watched it), it will always be remembered as a pioneer in the genre of love.
 
-
+Currently, my favorite player is....guess who? Kevin Love! Favorite city? Hartford! Favorite Big 10 football coach? Lovie Smith! Favorite ex-Pittsburgh Pirates pitcher? Bob Friend! Favorite Nirvana song? Heart-Shaped Box! 
 
 Anyway, I cannot wait for tomorrow. This is my day to shine; a day made for me.
 
