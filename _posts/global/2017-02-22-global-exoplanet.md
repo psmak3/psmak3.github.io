@@ -26,7 +26,7 @@ These planets, known as 'Earth's seven sisters' (didn't know Earth was sleeping 
 Alas, we do not know whether or not any of these 'sisters' are festering with a native population that we can later pillage for their natural resources. There are some issues; their sun is a young buck, much younger than our sun so conditions for life have not been around very long for life to evolve. Also, we are still not sure how life even exists in the first place, so unless God feels the need to create another play thing, who knows what is really going on out there. 
 
 
-Regardless, in 2018 when NASA launches the James Webb telescope, we can only speculate about our newfound neighbors that are only 230 trillion miles away. What are they like? Are they cool? Do you think they will like us? Maybe we can sleep over there once Scott Pruitt destroys our planet when he dismantles the EPA. 
+Regardless, in 2018 when NASA launches the James Webb telescope, we can only speculate about our new-found neighbors that are only 230 trillion miles away. What are they like? Are they cool? Do you think they will like us? Maybe we can sleep over there once Scott Pruitt destroys our planet when he dismantles the EPA. 
 
 
 Or maybe there is nothing there and we realize even more and more that life is something so rare and special that we have to take care of life as we know it here on Earth, we become more conscious of the preciousness of human existence and a brighter, more peaceful future ensues.
