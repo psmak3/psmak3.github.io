@@ -39,7 +39,7 @@ Phew! I, as many other people in this country, steeped in the quagmire of their 
 And it is about time our modern-day oracles rise up and preach to the masses. I know how busy our celebrities can be; making movies, doing voice-over work at home, posing for a photo-op with a hungry child, etc. I am just so thankful these people still have the time to read the news, formulate the correct opinion on such matters, and then humble themselves by relating it to the common folk.
 
 
-Thank you Hollywood. For without you and your wisdom, I would not know what I should think. No one lives a more down-to-earth lifestyle than you, and I thank you for your incite.
+Thank you Hollywood. For without you and your wisdom, I would not know what I should think. No one lives a more down-to-earth lifestyle than you, and I thank you for your insight.
 
 
 Now, about my dog, what do you have to say about that Casey Affleck?
