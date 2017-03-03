@@ -20,7 +20,7 @@ But wait!! Never count out France.
 
 As we all know, France is about as weird as any place outside of Portland. Their form of cinema is esoteric, their cuisine costs a ton yet never fills you up, their language makes no sense at all, their tennis major is played on red mud, and no one has forgotten how they folded like a cheap tent in WWII. 
 
-They also are slighty odd in their politics; they have a multiple-round election system (sort of like March Madness but without the excitement), they have a liberal reputation in some ways, for example they have had a president who was openly having an affair with another woman, yet this year all three candidates are center to far right. 
+They also are slightly odd in their politics; they have a multiple-round election system (sort of like March Madness but without the excitement), they have a liberal reputation in some ways, for example they have had a president who was openly having an affair with another woman, yet this year all three candidates are center to far right. 
 
 
 Anyway, France is weird. And not to be upstaged by America becoming weird, France is doing a Trump-esque thing and putting up a candidate that is drowning in scandal and loves Putin.
@@ -31,7 +31,7 @@ Meet Mr. Francois Fillon (no relation to the great thespian Nathan Fillion, who,
 
 ![](http://g8fip1kplyr33r3krz5b97d1.wpengine.netdna-cdn.com/wp-content/uploads/2016/11/GettyImages-626141270-714x476.jpg)
 
-This guy was the former Prime Minister of France under Sarkozy (so yes, the PM and president are different things there, so weird). He won the primary to represent his 'Repbulican' party, whatever the hell that is in France.
+This guy was the former Prime Minister of France under Sarkozy (so yes, the PM and president are different things there, so weird). He won the primary to represent his 'Republican' party, whatever the hell that is in France.
 
 Anyway, this turd has been lying for years that his wife has not been paid for a job she never had, about $900,000 to be exact. 'Who cares', you may say. Well, who was paying her that money and why? Maybe to get favors from her husband? Maybe the Russians were paying her to let her do things that Russians want her to do? Maybe aliens paid her in space dollars to let down their guard for a future invasion? In other words, we do not know. 
 

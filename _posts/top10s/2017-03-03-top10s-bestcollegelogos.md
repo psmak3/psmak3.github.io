@@ -14,6 +14,7 @@ share: true
 ![](http://content.sportslogos.net/logos/32/734/full/4672_louisville_cardinals-primary-2007.png)
 
 
+
 To start off the list, an upset! I mean this looks like such a simple logo, why be in the top 10? Well, there is something different about this cardinal......see it? TEETH!!!! It has teeth!!! Cardinals, or birds for that matter, do not have teeth. But this badass does. Screw the ornithological societies! This bird needs floss and needs some now!! 
  
  
