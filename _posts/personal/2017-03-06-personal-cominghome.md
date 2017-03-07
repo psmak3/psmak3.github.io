@@ -7,7 +7,7 @@ comments: false
 share: true
 ---
 
-![](http://combiboilersleeds.com/image.php?pic=/images/coming-home/coming-home-1.jpg)
+![](https://images-na.ssl-images-amazon.com/images/I/51ZGZ4F9D2L.jpg)
 
 
 
