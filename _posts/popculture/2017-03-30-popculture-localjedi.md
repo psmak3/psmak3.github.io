@@ -36,13 +36,13 @@ Yes, 3 weeks ago the Emerald City Comicon made its annual appearance. And that g
 Now I don't think there is anything wrong with dressing up and going to these types of conventions. I mean it is all in fun; to each their own. But that image is burned into my brain and has tainted all of my depictions of Jedi.
 
 
-There was nothing majestic about this man. There was no splash on 'hero' in any part of his presence. Hell, he even had glasses on. One would think one so well versed in the Force did not need corrective lenses for his myopia. 
+There was nothing majestic about this man. There was not even a whisper of 'hero' when I was in his presence. Hell, he even had glasses on. One would think one so well versed in the Force did not need corrective lenses for his myopia. 
 
 
-And that image of this man, sitting on the public bus, alone, with his makeshift lightsaber, midday, surrounded by normal people wearing mornal everyday things. I just would think a Jedi would use some sort of Landspeeder of Tauntaun to go to a convention, not the C Line on a Saturday afternoon. 
+And that image of this man, sitting on the public bus, alone, with his makeshift lightsaber, midday, surrounded by normal people wearing normal everyday things. I just would think a Jedi would use some sort of Landspeeder of Tauntaun to go to a convention, not the C Line on a Saturday afternoon. 
 
 
-Yes, I know. Jedi are not real. But sometimes our own thoughts about things like this are better off untainted by the ugly truth. It is sort of like finding out the Santa you took a picture with as a kid is really a grumpy old smelly bum who is now in jail for smacking an underaged prositute. Yes, that is the truth behind the fasade, but does knowing this help?
+Yes, I know. Jedi are not real. But sometimes our own thoughts about things like this are better off untainted by the ugly truth. It is sort of like finding out the Santa you took a picture with as a kid is really a grumpy old smelly bum who is now in jail for smacking an underaged prostitute. Yes, that is the truth behind the facade, but does knowing this help?
 
 
 Hopefully Rian Johnson can help flush that odd pseudo-Jedi memory out with Episode 8. And while I am at it, I'll try to rid myself of Episode 7 and that needless Star Wars fan fiction called Rogue One. Then maybe peace and order will be restored in my Galactic Empire.
