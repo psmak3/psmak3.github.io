@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Spew Brew Review: Winter Ales"
+title: "Spew Brew Review: Breakfast Stouts"
 excerpt: "Beer"
 categories: beer
 comments: false
