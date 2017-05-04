@@ -14,12 +14,12 @@ share: true
 
 
 
-I know, I know. I am not a fan of stupid, made up 'holidays' like this. I think the advent of social media has advertised these types of days and ensconsed them into our culture unwittingly. 
+I know, I know. I am not a fan of stupid, made up 'holidays' like this. I think the advent of social media has advertised these types of days and ensconced them into our culture unwittingly. 
 
 There are things like Pirate Day, Pi Day (3/14, get it?), Pot Day (4/20, get it?), Selfie Day, etc. Who cared about any of these celebrations before Facebook?
 
 
-Anyway, instead of being a curmugeon about this, I'll play along. I critisize Star Wars a lot on this blog (especially the last two efforts by Disney....ugh), but I actually really like Star Wars. Or at least the concept of having a fantasy story set in space. In fact, I would agrue Star Wars has become America's sort of mythology; granted Star Wars is not an origin story for America, but we a relativly new nation and have not had a chance to create a lore to pass down from generation to generation. Star Wars is sort of like that for us. Also America being the main player in the Space Age helps this as well.
+Anyway, instead of being a curmudgeon about this, I'll play along. I criticize Star Wars a lot on this blog (especially the last two efforts by Disney....ugh), but I actually really like Star Wars. Or at least the concept of having a fantasy story set in space. In fact, I would argue Star Wars has become America's sort of mythology; granted Star Wars is not an origin story for America, but we a relatively new nation and have not had a chance to create a lore to pass down from generation to generation. Star Wars is sort of like that for us. Also America being the main player in the Space Age helps this as well.
 
 
 Anyway, to celebrate Star Wars day today, I'll give you the 4 (for May 4th) things I like about Star Wars the most:
@@ -27,13 +27,13 @@ Anyway, to celebrate Star Wars day today, I'll give you the 4 (for May 4th) thin
 
 4. The overall look of it
 
-The imagination of George Lucas is very deep. Think about all hte of the planets, the costumes, the weapons, etc. that go into the creation of Star Wars. It is a feast for the eyes. Even the much maligned prequels have a great underlying imagination to it. The bright colors, lights sabers, the diversity of the worlds, and the 'pew pew'ing of all the lasers makes this a movie series that is always fun to watch. Sans ep.7.
+The imagination of George Lucas is very deep. Think about all the of the planets, the costumes, the weapons, etc. that go into the creation of Star Wars. It is a feast for the eyes. Even the much maligned prequels have a great underlying imagination to it. The bright colors, lights sabers, the diversity of the worlds, and the 'pew pew'ing of all the lasers makes this a movie series that is always fun to watch. Sans ep.7.
 
 
 3. Jedis are cool
 
 
-They just are. The Force is cool. Wearing robes is cool. Controling other people's minds is cool. Having a light saber is cool. It is just cool to be a Jedi. I wish my midichlorine count was higher.
+They just are. The Force is cool. Wearing robes is cool. Controlling other people's minds is cool. Having a light saber is cool. It is just cool to be a Jedi. I wish my midichlorine count was higher.
 
 
 2. Ewoks
@@ -55,7 +55,7 @@ Hear it? Of course you do!! It is amazing how that simple theme can create all s
 
 
 
-But not only the theme makes the music of Star Wars memoriable. Every character, every planet, every siutation has a distinct theme to them. The movies have wall-to-wall music. When you hear the entire score without the movie, your mind can actually picture what part of the film you are in. What other film score does that?
+But not only the theme makes the music of Star Wars memorable. Every character, every planet, every situation has a distinct theme to them. The movies have wall-to-wall music. When you hear the entire score without the movie, your mind can actually picture what part of the film you are in. What other film score does that?
 
 
 
