@@ -7,7 +7,7 @@ comments: false
 share: true
 ---
 
-![](http://images.mentalfloss.com/sites/default/files/styles/insert_main_wide_image/public/two%20window%20cl)
+![](http://digi-notice.com/anew/wp-content/uploads/2013/11/Window-Washers.jpg)
 
 
 
@@ -25,7 +25,7 @@ This got me thinking about window washers and the entire production of window wa
 I mean in my little 5 story complex, there is a certain amount of skill and care that needs to be used to clean these windows. But that is child's play compared to what window washers have to encounter when faced with a downtown skyscraper.  
 
 
-I mean have you seen these guys on their little cables and pullies, swinging around on the edge of a building? It looks like a Rocks N' Ropes course in the middle of the city. The only difference; falling from this course leads to certain death.
+I mean have you seen these guys on their little cables and pullies, swinging around on the edge of a building? It looks like a Rocks N' Ropes course in the middle of the city. The only difference; falling from this course leads to certain death. And sorry, that little helmet they are wearing will do no good.
 
 
 
