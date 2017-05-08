@@ -10,7 +10,6 @@ share: true
 ![](http://static.seattletimes.com/wp-content/uploads/2016/05/05012016-mayday35-1020x680.jpg)
 
 
-Summer is coming, and in a vain attempt to shed some weight from my shitty flabby body, I am quitting beer 
 
 
 Seattle is a town very proud of itself. They like to think of themselves as very progressive; on the cutting edge of such things like business, technology, and culture. Hell, they were named 'Most Literate City' back a few years ago; a title which I have no idea what it means, thought almost everyone knows how to read. Regardless, Seattle loves to pat themselves on the back for being smart, forward-thinking, and just plain awesome. And for the most part, I can get behind their self-congratulatory nature.
