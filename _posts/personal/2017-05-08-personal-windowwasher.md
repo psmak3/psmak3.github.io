@@ -7,7 +7,7 @@ comments: false
 share: true
 ---
 
-![](http://images.mentalfloss.com/sites/default/files/styles/insert_main_wide_image/public/two%20window%20cl
+![](http://images.mentalfloss.com/sites/default/files/styles/insert_main_wide_image/public/two%20window%20cl)
 
 
 
