@@ -13,7 +13,7 @@ share: true
 
 ![](http://68.media.tumblr.com/33882946bc0f993f65b15dd3a57549e8/tumblr_nszyq4yd8y1udx1oho1_r1_1280.jpg)
 
-Yeah, I'm starting this list with a bomb! Sandy Koufax; dominant pitcher, strikeout king, no-hit ace......for 6 years. Yes, this mythical level of dominance lasted for 5 years. His first 3 years, he barely pitched due to control issues. The next 3 years he was still busy finding himself. The last 6 years were absolutely dominant. Then he stopped due to blowing out his arm. After 12 season, where about half were memorable. HOF career? Maybe. But the level of fame he achieved is not merited by this incomplete career. Remember Johan Santana? He was about as dominant for 3 years. Then he disappeared due to arm issues as well. Johan will not get a sniff of the HOF yet Sandy will live in sports immortality. Wonder if pitching in NY/LA helped..........
+Yeah, I'm starting this list with a bomb! Sandy Koufax; dominant pitcher, strikeout king, no-hit ace......for 6 years. Yes, this mythical level of dominance lasted for 6 years. His first 3 years, he barely pitched due to control issues. The next 3 years he was still busy finding himself. The last 6 years were absolutely dominant. Then he stopped due to blowing out his arm. After 12 season, where about half were memorable. HOF career? Maybe. But the level of fame he achieved is not merited by this incomplete career. Remember Johan Santana? He was about as dominant for 3 years. Then he disappeared due to arm issues as well. Johan will not get a sniff of the HOF yet Sandy will live in sports immortality. Wonder if pitching in NY/LA helped..........
 
 # 9. Gale Sayers
 
