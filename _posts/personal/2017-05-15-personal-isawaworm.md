@@ -61,4 +61,4 @@ Squashed.
 
 Dead.
 
-Squaches dead.
+Squashed dead.
