@@ -23,7 +23,7 @@ It is about the theater itself. Apparently the good people at Regal Theaters in 
 Good idea? Heck ya! Who doesn't want to be as comfy as possible while watching 2+ hours of CGI fun! The seats are truly very cozy, the spacing from you to the next person is perfect, and guess what?!? It doesn't cost any extra.
 
 
-But.........................
+But..........................
 
 
 As all seemingly good things, there is a downside.
