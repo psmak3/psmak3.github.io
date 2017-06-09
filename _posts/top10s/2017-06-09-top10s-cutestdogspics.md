@@ -72,7 +72,7 @@ share: true
 
 # 1. However, Despite All of These Utterly Adorable Pics, This One Is My Favorite
 
-![](http://psmak3.github.io/images/ArwenPuppy.JPG)
+![](http://psmak3.github.io/images/ArwenPuppy.jpg)
 
 
 
