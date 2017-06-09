@@ -69,6 +69,7 @@ share: true
 
 
 
+
 # 1. However, Despite All of These Utterly Adorable Pics, This One Is My Favorite
 
 ![](https://github.com/psmak3/psmak3.github.io/blob/master/images/ArwenPuppy.jpg)
