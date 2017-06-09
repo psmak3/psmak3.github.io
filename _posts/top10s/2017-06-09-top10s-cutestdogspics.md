@@ -72,7 +72,8 @@ share: true
 
 # 1. However, Despite All of These Utterly Adorable Pics, This One Is My Favorite
 
-![](https://github.com/psmak3/psmak3.github.io/blob/master/images/ArwenPuppy.jpg)
+![](http://psmak3.github.io/images/ArwenPuppy.JPG)
+
 
 
 Arwen at 8 weeks old.
