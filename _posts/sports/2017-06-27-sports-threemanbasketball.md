@@ -27,6 +27,8 @@ As you can see from the header who is participating in this thing that even Al B
 
 - Is it the fact that a 3-man team has a captain?
 
+- Is it the fact that a 3-man team has a co-captain?
+
 - Is it the fact that this 3-man team has a coach?
 
 - Is it the fact that there was a draft?
