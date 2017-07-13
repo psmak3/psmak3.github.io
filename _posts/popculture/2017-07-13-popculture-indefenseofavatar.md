@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "In Defense of: Avatar"
+title: "In Defense of: Humans in Avatar"
 excerpt: "Pop Culture"
 categories: popculture
 comments: false
