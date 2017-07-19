@@ -33,7 +33,7 @@ Remember the part where the kids were getting away in the SUV and there was a T-
  
  This puts the entire Jurassic Park franchise into question. Are the new movies going to incorporate these findings? Is Spielberg going to go back, ala George Lucas, and redo some of the scenes?
  
- I don't know. I don't even know what they should do. But all I know is that ![this.....](https://www.youtube.com/watch?v=dkUZb_Qwbvc) is not frightening.
+ I don't know. I don't even know what they should do. But all I know is that [this.....](https://www.youtube.com/watch?v=dkUZb_Qwbvc) is not frightening.
 
 
 
