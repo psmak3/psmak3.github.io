@@ -79,7 +79,7 @@ Another example of a TV theme that sets the stage for our protagonist. And just 
 
 # 2. WKRP in Cincinnati
 
-![](hhttps://ibhuluimcom-a.akamaihd.net/ib.huluim.com/show/31?region=US&size=952x536)
+![](http://tigerstrypes.com/wp-content/uploads/2014/12/WKRP-In-Cincinnati-e1362783380945.jpg)
 
 
 I never watched this show in my life. Yes, it was on syndication and right down my wheelhouse, but never really got into it. But the theme song is fantastic. It is song about a guy who is trying to find himself after a break-up. It is not as sugar-coated as the previous two themes here, but still has a hopeful lilt to it. [Just try it out here.](https://www.youtube.com/watch?v=zgrVP_J0BHk)
