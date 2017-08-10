@@ -17,7 +17,7 @@ It will be when North Korea bombs Seattle with their missile-ready nuclear weapo
 
 
 
-We all know Donald Trump is an idiot. Scratch that. Everyone who has an IQ about 80 knows Donald Trump is an idiot. But for the most part thus far, he has been a harmless idiot. Just a pathetic, whiny victim always crying for attention. But when he starts bloviating to other egotistical delusional leaders with nuclear weapons, things become a bit more serious. Don't know what I mean? Reference his 'Fire and Fury' monologue (whatever the hell that means) given ad-lib yesterday. 
+We all know Donald Trump is an idiot. Scratch that. Everyone who has an IQ above 80 knows Donald Trump is an idiot. But for the most part thus far, he has been a harmless idiot. Just a pathetic, whiny victim always crying for attention. But when he starts bloviating to other egotistical delusional leaders with nuclear weapons, things become a bit more serious. Don't know what I mean? Reference his 'Fire and Fury' monologue (whatever the hell that means) given ad-lib yesterday. 
 
 
 North Korea has reported to have missiles that can reach as far as the Pacific Coast, within a year missiles that will reach as far as middle America. Granted, the accuracy of this new intel is highly questionable, but I think it is pretty much known that North Korea is developing this these type of weapons and sometime soon this capability will be a 100% reality.
