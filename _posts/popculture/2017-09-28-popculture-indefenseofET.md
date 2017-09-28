@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "In Defense of: ET: a Forgotten Film"
+title: "In Defense of: ET Being a Forgotten Film"
 excerpt: "Pop Culture"
 categories: popculture
 comments: false
