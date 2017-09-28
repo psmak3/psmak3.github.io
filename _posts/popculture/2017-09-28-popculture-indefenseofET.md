@@ -30,7 +30,7 @@ Finally, and most importantly, why in the world does ET have magical powers? Oh,
 
 
 
-Anyway, ET is not an awful movie, or even a bad movie, but there is a reason why it has not lasted in pop culture as long as Raiders of the Lost Ark, Jurassic Park, Back to the Future, and Star Wars. It is children's buddy movie and that's about it. It is not deep at all and rather silly in retrospect. Don't believe me? Watch it again. You probably haven't seen in 20+ years. 
+Anyway, ET is not an awful movie, or even a bad movie, and has maybe the greatest theme song of all time (I love you John Williams!!). But there is a reason why it has not lasted in pop culture as long as Raiders of the Lost Ark, Jurassic Park, Back to the Future, and Star Wars. It is children's buddy movie and that's about it. It is not deep at all and rather silly in retrospect. Don't believe me? Watch it again. You probably haven't seen in 20+ years. 
 
 
 
