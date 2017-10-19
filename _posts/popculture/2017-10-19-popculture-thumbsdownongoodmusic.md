@@ -10,7 +10,7 @@ share: true
 ![](https://i.imgur.com/L39LqS9.jpg)
 
 
-
+ 
 The other day at work, I started listening to some music in my office. I looked up Metallica's Black Album in YouTube (their most popular and significant album that catapulted them from heavy metal icons to overall mainstream success) and get some of that Enter Sandman in my ears to energized myself through a tedious day. 
 
 After rocking out to about half the album, I noticed the thumbs up and down icons at the bottom. This is where people get to click whether or not they like the video. There were '1K' thumb downs on this album. 
