@@ -10,7 +10,7 @@ share: true
 
 # 10. Spooky Zombie
 
-![](hhttp://www.toptenz.net/wp-content/uploads/2010/10/office-zombie-640x384.jpg)
+![](https://i.pinimg.com/736x/43/98/6c/43986ca380b478fd4a86ab946f631c83--zombie-baby-costumes-kid-costumes.jpg)
 
 
 'Oh no! Please don't eat my brains!' To start off this very spooky list, let's go with a spooky zombie. A perfect look for Halloween, zombies always have blood running down their mouth, sunken in eyes, and ooohhhh so spooky. You never want to meet one of these spooky folks in an alley.
