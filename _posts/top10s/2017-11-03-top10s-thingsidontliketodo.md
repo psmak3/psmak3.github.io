@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Top 10 Things I Don't Like to Do But Feel Like I Should"
+title: "Top 10 Things I Don't Like to Do But Feel Like I Should Like"
 categories: top10s
 excerpt: "Top 10"
 comments: false
