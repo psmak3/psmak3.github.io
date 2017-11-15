@@ -26,7 +26,7 @@ Oh sure, Roy Moore has not been convicted by any jury or even been indicted on a
 Anyway, the result of all of this is obviously nothing. Well, Moore is dividing up the GOP a bit. The rank and file Republicans are courageously standing up to pedophilia and condemning a man who they didn't want in the seat anyway while the far alt right folks are declaring all of this a leftist scheme to defame the 'good judge' Roy Moore. Hell, some of his support actually doesn't care that he likes to flirt around with pre-teens, they will vote for him anyway and justify it via the Bible. But as far as the other candidate taking advantage of this scandal and maybe winning a Senate seat for the Democrats, forget it. Roy Moore will win it. I pretty much guarantee this. 
 
 
-Why? Well first off, who is this 'other guy'? No one really knows. All we know is that he is a Democrat and Alabama folk hate those Dems. Actually it is a guy named Doug Jones; a long time lawyer who fought for civil rights in Alabama. See? The more you know about him, the less likely he is to win. Democrat AND a civil rights guy? Snowball chance in hell, huh?
+Why? Well first off, who is this 'other guy'? No one really knows. All we know is that he is a Democrat and Alabama folk hate those Dems. Actually it is a guy named Doug Jones; a long time lawyer who fought for civil rights in Alabama. See? The more you know about him, the less likely he is to win. Democrat AND a civil rights guy? Snowball chance in hell, huh? Secondly, Republicans hate Democrats so much, I mean soooooooooooooooooo much that they will never never never vote for one, much less even regard one as a reasonable candidate. And there is no more Republican state in the Union than Alabama.
 
 
 
