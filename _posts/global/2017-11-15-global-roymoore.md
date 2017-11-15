@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Sure, I'll Vote For the Pedophile"
+title: "Vote For the Pedophile.......Uhhh.....OK???"
 excerpt: "Global"
 categories: global
 comments: false
