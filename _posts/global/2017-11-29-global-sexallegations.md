@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Accusations"
-excerpt: "Global"
+excerpt: "J'accuse...!"
 categories: global
 comments: false
 share: true
