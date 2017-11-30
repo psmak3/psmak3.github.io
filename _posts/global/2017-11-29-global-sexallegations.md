@@ -74,7 +74,7 @@ For example:
 
 In other words:
 
-Jerk = Al Franken, Matt Lauer, Louie CK
+Jerk = Al Franken, Louie CK
 
 Predator = Roy Moore, Roger Ailes, Harvey Weinstein
 
