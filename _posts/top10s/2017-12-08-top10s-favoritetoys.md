@@ -19,7 +19,7 @@ What's a better time to reminisce about all the best toys we have owned than Chr
 
 ![](https://target.scene7.com/is/image/Target/14163433_Alt50?wid=520&hei=520&fmt=pjpeg)
 
-Oh yeah, the Big Wheel. When I was 5, I was such a badass on this thing. I was riding around the neighborhood, hot blonde in one arm, bottle of Everclear in the other. I absolutely dominated the old 85715 back in the 70's. And why? Because of my goddamn Big Wheel, that's why!! Pretty much everyone owned a Big Wheel at one time, and they exist to this very day. A true classic toy.
+Oh yeah, the Big Wheel. When I was 5, I was such a badass on this thing. I was riding around the neighborhood, hot blonde in one arm, bottle of Everclear in the other. I absolutely dominated the old 85715 back in the 70's. And why? Because of my goddamn Big Wheel, that's why!! Teh Big Wheel was the main form of transportation for many a child back in my day. But it also exists today in pretty much the same form! A true classic toy.
 
 # 8. Slinky
 
