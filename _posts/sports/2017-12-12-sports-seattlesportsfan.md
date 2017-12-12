@@ -12,6 +12,7 @@ share: true
 
 
 
+
 When I first moved to Seattle, all I would hear from the local fans is how  difficult it is to be a Seattle fan. 
 
 Then the Seahawks won the Super Bowl.
