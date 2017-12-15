@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Top 10 Favorite Toys I've Ever Owned"
+title: "Top 10 Favorite Christmas Songs"
 categories: top10s
 excerpt: "Top 10"
 comments: false
