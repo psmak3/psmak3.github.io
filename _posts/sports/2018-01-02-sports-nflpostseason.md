@@ -7,7 +7,7 @@ comments: false
 share: true
 ---
 
-![](hhttp://printableteamschedules.com/images/nfl/nflplayoffbracket.gif)
+![](http://printableteamschedules.com/images/nfl/nflplayoffbracket.gif)
 
 
 Well, well, well.......it is that time again....NFL playoffs!!
