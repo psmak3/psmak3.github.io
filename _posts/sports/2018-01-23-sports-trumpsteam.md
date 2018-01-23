@@ -57,7 +57,7 @@ Oh yeah, and here is this pic:
 
 
 
-![](https://media3.s-nbcnews.com/j/msnbc/components/video/201704/insta_dc_trump_patriots_170419.nbcnews-ux-1080-600.jpg)
+![](https://imagesvc.timeincapp.com/v3/mm/image?url=https%3A%2F%2Ffortunedotcom.files.wordpress.com%2F2016%2F11%2Fgettyimages-76353930.jpg&w=700&q=85)
 
 
 
