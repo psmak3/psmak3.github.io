@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Word Salad"
+title: "Don't Eat That Word Salad"
 excerpt: "Global"
 categories: global
 comments: false
