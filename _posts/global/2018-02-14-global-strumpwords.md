@@ -9,7 +9,7 @@ share: true
 
 
 
-![](http://yournewswire.com/trump-master-super-fake-news-ron-paul/)
+![](https://cdn-images-1.medium.com/max/1600/1*vLVkZ19eY_vHD1smCCpxhA.jpeg)
 
 
 
