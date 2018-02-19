@@ -8,7 +8,7 @@ share: true
 ---
 
 
-![](https://imgflip.com/memetemplate/76210942/trump-funny-face)
+![](https://i.imgflip.com/19dgqm.jpg)
 
 
 

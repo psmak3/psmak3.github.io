@@ -7,7 +7,7 @@ comments: false
 share: true
 ---
 
-![](https://www.mirror.co.uk/sport/gallery/winter-olympics-wipeouts-crashes-injuries-12025249)
+![](https://www.thesun.co.uk/wp-content/uploads/2018/02/nintchdbpict000384704511-e1518525989927.jpg?strip=all&w=960)
 
 
 I used to be a big fan of the Olympics. All the fanfare, hoopla, and competition, I thought it was the pure essence of sports.
