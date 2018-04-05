@@ -51,11 +51,11 @@ Nose: Sweet and fruity. I guess there is some honey in there as well, but I just
 
 Taste: Very good. It is so smooth and chewy, the rich sweetness is very well balanced with the sting of the alcohol. I highly recommend a splash of water to unleash the fruity tones. 
 
-Finsh: Long and strong (that's what she said). You will be tasting this one for awhile. And that's a good thing in this case.
+Finish: Long and strong (that's what she said). You will be tasting this one for awhile. And that's a good thing in this case.
 
 
 
-At the local pub, a pour would cost around $10-$12; not a terrible price to pay considering a MacCallen 12 year would run about $3-$5 more (and it is made in the same region with very similar tasting notes!). However, no need to drink this one at a bar, save some money and just buy a bottle! Sure, it is about $20 more than a Jameson or Bulleit, and there is always room for one of those on your shelf at home. But trust me, The Balvenie DoubleWood is definitely worth the extra money. I guarentee you will taste the difference. 
+At the local pub, a pour would cost around $10-$12; not a terrible price to pay considering a Macallan 12 year would run about $3-$5 more (and it is made in the same region with very similar tasting notes!). However, no need to drink this one at a bar, save some money and just buy a bottle! Sure, it is about $20 more than a Jameson or Bulleit, and there is always room for one of those on your shelf at home. But trust me, The Balvenie DoubleWood is definitely worth the extra money. I guarantee you will taste the difference. 
 
 
 
