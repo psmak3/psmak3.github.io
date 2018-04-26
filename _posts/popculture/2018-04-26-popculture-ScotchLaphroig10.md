@@ -56,7 +56,7 @@ Finish: After you exhale, your mouth is filled with a smoky residue that lingers
 
 
 
-I love it!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! This is what scotch drinkers drink; hard and strong single malt peaty goodness. As for cost, a mere $55 can get you a bottle of this libation. A mere pittance if you consider it received a 96/100 on Distilled (my goto app for this stuff). Try to find another 90+ rating that costs less than $100. 
+I love it!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! This is what scotch drinkers drink; hard and strong single malt peaty goodness. As for cost, a mere $55 can get you a bottle of this libation. A mere pittance if you consider it received a 96/100 on Distilled (my goto app for this stuff). Try to find another 90+ rating that costs less than $100. Try a pour.....if you dare!!!!!!!!
 
 
 
