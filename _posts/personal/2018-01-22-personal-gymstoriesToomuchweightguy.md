@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Gymtime Stories: Part VIII-Too Much Weight Guy"
+title: "Gymtime Stories: Part IX-Too Much Weight Guy"
 excerpt: "Personal"
 categories: personal
 comments: false
