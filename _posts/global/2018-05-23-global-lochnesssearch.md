@@ -22,10 +22,10 @@ FINALLY!!!
 
 
 
-Finally scientiest are doing something worthwhile.
+Finally scientists are doing something worthwhile.
 
 
-A global team of scientics are going to search for the existence of the Loch Ness Monster using advanced environmental DNA techniques. 
+A global team of scientists are going to search for the existence of the Loch Ness Monster using advanced environmental DNA techniques. 
 
 
 Pay no matter to the fact that such a huge animal in a very closed environment can live for literally decades without being detected.
@@ -41,7 +41,7 @@ Pay no attention to the fact that an animal with that much size would need to co
 Oh yeah, and all those photos of it have been proven to be a hoax.
 
 
-Well, maybe with the expection of this one:
+Well, maybe with the exception of this one:
 
 
 ![](https://cdn.thisiswhyimbroke.com/images/adult-loch-ness-monster-costume-300x250.jpg)
