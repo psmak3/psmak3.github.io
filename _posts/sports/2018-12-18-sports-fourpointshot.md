@@ -1,6 +1,7 @@
 ---
 layout: post
 title: "Four Point Shot?"
+excerpt: "Sports"
 categories: sports
 comments: false
 share: true
