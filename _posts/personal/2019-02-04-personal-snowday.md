@@ -43,7 +43,7 @@ And when home, I watched TV. So I did NOT let a bit of frost deter me from my da
 
 
 
-It is sort of funny that here in Seattle the slightest touch of snow makes the city shut down. Some of this is due to lack of tools to clear the roads, deice the sidewalks, etc. It snows only 1-3 a year here so tehre is no need for a lot of plows. Some of it is due to the hills; Seattle is very hilly, so you can imagine ice can really make things dangerous. And some of it is because people here can be pussies.
+It is sort of funny that here in Seattle the slightest touch of snow makes the city shut down. Some of this is due to lack of tools to clear the roads, deice the sidewalks, etc. It snows only 1-3 a year here so there is no need for a lot of plows. Some of it is due to the hills; Seattle is very hilly, so you can imagine ice can really make things dangerous. And some of it is because people here can be pussies.
 
 
 
