@@ -36,7 +36,7 @@ Here is a quick list of the worst Best Picture winners I've seen:
 
 - Tom Jones
 
-- Digi
+- Gigi
 
 - Around the World in 80 Days
 
