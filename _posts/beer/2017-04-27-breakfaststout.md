@@ -1,13 +1,17 @@
 ---
+title: 'Spew Brew Review: Breakfast Stouts'
+comments: no
+excerpt: Beer
+output: pdf_document
 layout: post
-title: "Spew Brew Review: Breakfast Stouts"
-excerpt: "Beer"
+share: yes
 categories: beer
-comments: false
-share: true
 ---
 
 ![](https://cdn.shopify.com/s/files/1/0030/3802/products/2016-03-25_12-48-30.png?v=1464412046)
+
+
+
 
 
 Hello and welcome to another 'Spew Brew Review'. I know it has been awhile since I talked about some beer. To be honest, I found myself in reruns when I was out tasting. In other words, instead of trying new stuff, I gravitated to some of the older ales I trusted. 
@@ -88,6 +92,8 @@ Again, not really a breakfast beer. Hey, it is hard finding these guys. But this
 ## 12.4% ABV 70 IBU
 
 OK, here is the OBS of the group (original breakfast stout). There maybe have been some that predate this one, but this is the one that I heard about first, this is the one that has a bit of a following from years past, and it is the first beer that pops up when you Google 'breakfast beer'. Founders, out of Michigan, has been around for awhile, however recently has expanded their distribution to places like Washington and California. Some of their stuff is good, but not this one. No sirree. This one is VERY good. So very good to the point where it is excellent! This one is very much like the 'Beer for Breakfast'; pork overtones, coffee flavor, etc. But this one is even better. Maybe because the people at Founders have had multiple iterations of this therefore have perfected their recipe. Regardless, this is just a great beer. Too bad they brew it sparingly. Why does all the good beer come in such limited quantities? 
+
+
 
 
 
