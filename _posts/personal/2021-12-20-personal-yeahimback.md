@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Yeah, I'm Thinking I'm Back"
+title: "People Keep Asking If I'm Back and I Haven't Really Had an Answer, But........."
 excerpt: "Personal"
 categories: personal
 comments: false
@@ -42,6 +42,8 @@ But, as the world turns, sometimes the more things change, the more they stay th
 - Disney hijacking all relevant franchises and then put it in Mickey's meat grinder and shape these films into the same format over and over and over and over and over and over and over and over and over and over and over and over again. Wait, did our Marvel heroes save the universe again? No way............
 
 
+
+
 - The Seahawks still cannot draft or diagnose any offensive or defensive lineman talent to save their team.
 
 
@@ -51,7 +53,7 @@ But, as the world turns, sometimes the more things change, the more they stay th
 - I still have waaaaaay too many opinions on waaaaay too many things I know waaaaaaay too little about.
 
 
-So on that note; WELCOME BACK!! I plan on writing daily once again but with a slightly different daily focus. I hope my 5-7 readers will return to the site, read a post or two when you need a diversion, enjoy the random spewings of a middle-aged married man living in uptown Seattle.
+So on that note, WELCOME BACK!! There is so much to talk about and I hope I can tackle at least a fair percentage of it for you all. I plan on writing daily once again but with a slightly different daily focus. I hope my 5-7 readers will return to the site, read a post or two when you need a diversion, enjoy the random spewings of a middle-aged married man living in uptown Seattle.
 
 
 
