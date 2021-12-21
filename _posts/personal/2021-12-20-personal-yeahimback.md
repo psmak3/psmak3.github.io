@@ -32,7 +32,7 @@ Well, a lot has happened over the past 800+ days.
 
 - I am now a puckhead.
 
-- I am really into judging people forging knives: let me be clear.....I am into the JUDGING and ASSESSING of people forging knives, me actually making a knife (although I have :) ).
+- I am really into judging people forging knives: let me be clear.....I am into the JUDGING and ASSESSING of people forging knives, NOT me actually making a knife (although I have :) ).
 
 - And there is this thing called COVID that that you may have heard of, that has pretty much ruined all my plans for travel. However, for all it's faults, has has bared the soul (and intelligence) of individuals on this planet.
 
