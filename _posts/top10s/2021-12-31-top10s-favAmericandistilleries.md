@@ -58,7 +58,7 @@ One of the newer kids on the block, Wilderness Trail is right outside Bardstown,
 
 
 
-![](https://images.squarespace-cdn.com/content/v1/591ef4602e69cf4a4e07070f/1513170544055-9R5KBBVR6P2IUZSCR1EG/balcones.png?format=750w)
+![](https://balconesdistilling.com/wp-content/themes/balcones/lib/img/logo.svg)
 
 Yes, I just love Texas whiskey, Balcones is a bit more, say, diverse than the previous Texas distilleries listed. In other words, yes they make bourbon and rye, but what I love about them is their single malt. Drenched with that unique Texas flavor, Balcones makes a deep, rich, single malt that is theirs and theirs alone. Balcones also is not afraid of playing around with things, aging in different wine casks, rum casks, even brandy casks. Yet despite all of those finishes, that signature Balcones flavor is still present.
 
