@@ -16,7 +16,7 @@ Virtual reality....the final frontier of gamers and people who hate their life a
 So is Meta the winner?
 
 
-Meta, pronounced MEAT-A (so stupid, huh), has come out with their effort at capturing VR with the Oculus. The Oculus is not just for gaming; it is supposed to be a true VR experience that transcends what other traditional gaming platforms like PlayStation and XBox do. But yeah, it also has a ton of games.
+Meta, which means 'dead' in Hebrew (nice name, huh), has come out with their effort at capturing VR with the Oculus. The Oculus is not just for gaming; it is supposed to be a true VR experience that transcends what other traditional gaming platforms like PlayStation and XBox do. But yeah, it also has a ton of games.
 
 The Oculus has been out for over a year now and recently released their second generation. Unlike previous efforts of VR (eg: converting your iPhone into a VR/306 degree experience with a makeshift VR glasses thing), this contraption looks more like the way we imaged a VR consul would look like. 
 
