@@ -21,7 +21,7 @@ I remember when President's Day was not President's Day at all, but a combinatio
 
 Somehow, for whatever reason, this was changed to include all presidents, both great and awful alike. 
 
-Side note: check out my list of ![Top 10 greatest presidents here](http://www.seattlespew.com/top10s/top10s-presidents/)
+Side note: check out my list of [Top 10 greatest presidents here](http://www.seattlespew.com/top10s/top10s-presidents/).
 
 Regardless of good or bad, I think we all can agree that even if we don't like certain presidents, we can agree than it is a position that we should respect.
 
