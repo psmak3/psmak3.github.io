@@ -20,13 +20,13 @@ But there has been one agency that has levied a counterattack so harsh, so debil
 
 First off, there is nothing more precious to anyone than an 'honorary' anything...I mean you can't spell 'honorary' without the word 'honor'. 
 
-Secondly, I am sure this has sent a cold chill down Putin's spine. What do his peers think of him now? What does a Steven Seagal saying about Putin behind his back. It probably is not understandable due to his fat cheeks, but sure as shit Steven is talking. And how about a Jean-Claude Van Damme? What does he think about all of this? None of us truly know, but if we know Jean-Claude, it probably involves a roundhouse kick into a splits. 
+Secondly, I am sure this has sent a cold chill down Putin's spine. What do his peers think of him now? What does a Steven Seagal saying about Putin behind his back. It probably is not understandable due to his fat face, but sure as shit Steven is talking. And how about a Jean-Claude Van Damme? What does he think about all of this? None of us truly know, but if we know Jean-Claude, it probably involves a roundhouse kick into a splits. 
 
 And what about the Valley?
 
 This last one brings me to my final point: yes Putin being stripped of all Taekwondo status is both humiliating and ego-draining, but this also makes Vlad a free agent in the martial arts scene. Will Danny LaRusso, Johnny Lawrence, or John Kreese errrrr.....Terry Silver pick him up?
 
-Honestly I don't see Danny taking that chance; Miyagi-do has never been about aggression or anger. So that one is a no.
+Honestly I don't see Danny taking that chance; Miyagi-Do has never been about aggression or anger. So that one is a no.
 
 Now Johnny is interesting; there was a time I would have thought Eagle Fang would have reached out to Putin about joining up. But I think Johnny is learning from his past mistakes and...well...I don't see a future for Vlad at Eagle Fang. Besides, Johnny is still living in the Cold War Era so Putin would be no friend and Vlad would probably not take kindly being called 'penis breath'.
 
