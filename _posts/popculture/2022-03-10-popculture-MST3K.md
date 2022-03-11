@@ -35,6 +35,6 @@ Also the personalities are just fun. They really are not mean spirited (credit t
 
 So now we are in 2022, and I am now watching it the same way I watched it 30 years ago. And guess what? It aged better than Dick Clark. I still laugh at all the same references, quips, and fun nonsense they toss out. Yeah, I know I have seen these things multiple times and granted, I can't pay attention to every word they say every episode, but I don't need to or want to. 
 
-It is comfort TV, and in a time where we need all the comfort we can get, that is very important to me.
+It is comfort TV, and in a time where we need all the comfort we can get, I cannot thank Joel/Mike, the Bots, Dr. Clayton, and TV's Frank enough.
 
 
