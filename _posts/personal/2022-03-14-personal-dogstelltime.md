@@ -35,9 +35,9 @@ In other words, it is clear to me that Arwen the Dog can not on;y tell time, but
 Yeah, Arwen the Dog is sort of a jerk.
 
 
-I would write more, but she has just scurried up the stairs and is now looking at me. Must me time for her afternoon walk.  
+I would write more, but she has just scurried up the stairs and is now looking at me. Must be time for her afternoon walk.  
 
 
-I guess I lost time.
+I guess I lost track of time.
 
 
