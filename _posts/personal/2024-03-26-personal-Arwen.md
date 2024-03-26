@@ -8,7 +8,7 @@ share: true
 ---
 
 
-![](http://psmak3.github.io/images/Arwen_lead.JPG)
+![](http://psmak3.github.io/images/Arwen_lead.jpg)
 
 
 
@@ -41,7 +41,7 @@ I'll never forget the very first time Arwen came home with me. I carried her lit
 **The Fellowship of the Arwen**: 
 
 
-![](http://psmak3.github.io/images/ArwenPuppy.JPG)
+![](http://psmak3.github.io/images/ArwenPuppy.jpg)
 
 
 
@@ -56,7 +56,7 @@ But there was something different about her….something like a subtle kindness 
 
 
 
-![](http://psmak3.github.io/images/ArwenTwoTowers.JPG)
+![](http://psmak3.github.io/images/Arwen_TwoTowers.JPG)
 
 
 
@@ -73,7 +73,7 @@ This phase of her live she was coming into her own. She was more than that annoy
 
 
 
-![](http://psmak3.github.io/images/ArwenROTK.JPG)
+![](http://psmak3.github.io/images/Arwen_ROTK.jpg)
 
 
 
@@ -201,7 +201,7 @@ As you may have noticed, I mixed in past and present tense throughout this work.
 
 
 
-![](http://psmak3.github.io/images/ArwenEnd.JPG)
+![](http://psmak3.github.io/images/Arwen_End.jpg)
 
 
 
